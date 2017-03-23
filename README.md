@@ -1,2 +1,2 @@
-# ReadME
+# ReadMe
 info about this project
