@@ -1,8 +1,8 @@
 # Summary
 
-* [Introduzione] (README.md)
+* [Introduzione](README.md)
 * Proemio
-* Primo Libro \(/LibroI.md\)
+* [Primo Libro](LibroI.md)
   * Prima Giornata
   * Seconda Giornata
   * Terza Giornata
