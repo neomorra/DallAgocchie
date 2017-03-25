@@ -2,7 +2,7 @@
 
 * [Introduzione](README.md)
 * Proemio
-* [Primo Libro](LibroI.md)
+* [Primo Libro](LibroI/giorno1.md)
   * Prima Giornata
   * Seconda Giornata
   * Terza Giornata
