@@ -1,6 +1,6 @@
 # Summary
 
-* [Introduzione](README.md)
+* [Introduzione](Introduzione.md)
 * Proemio
 * [Primo Libro](Libro1/giorno1.md)
   * Prima Giornata
