@@ -354,7 +354,7 @@ le guardie basse.
 **Lep.** Gabrei grato sapere, c'havendo voi detto coda lunga stretta all'una
 delle guardie, sè all'altra dire similmente si potrà porta di ferro stretta.
 
-**Gio.* Stretta, & larga, & alta se le dice: perché questa guardia si può fare
+**Gio.** Stretta, & larga, & alta se le dice: perché questa guardia si può fare
 in tre modi, & così coda lunga. Ma per venire alle brevità, io non intendeva far
 mention d'altra, et mi contentava che per hora aveste cognition di porta di
 ferro, & così di coda lunga tanto co'l destro, quanto co'l sinistro piede
