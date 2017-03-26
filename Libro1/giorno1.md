@@ -312,7 +312,7 @@ ne sono le più necessarie: cioè falso dritto, & falso manco.
 
 ###### Falso dritto & manco. {#falsi}
 
-Falso dritto sarà, quartendosi dalle vostre parti dritte, & andando di sotto in
+Falso dritto sarà, partendosi dalle vostre parti dritte, & andando di sotto in
 sù per la linea del mandritto. Ridoppio falso manco sarà, partendosi dal lato
 sinistro, & andando di sotto in sù per la linea del riverso ridoppio: & questo
 quanto al falso.
