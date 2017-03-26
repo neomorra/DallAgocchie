@@ -2,12 +2,11 @@
 
 ### Nella quale si ragiona dello schermire di spada sola.
 
-
-###### Spada sola, perché preferita all'altre armi. {#preferita}
+###### Spada sola, perchÃ© preferita all'altre armi. {#preferita}
 
 ###### Parar con la spada in quanti modi si fa. {#parare}
 
-###### Ferir di punta è migliore che di taglio. {#meglio_punte}
+###### Ferir di punta Ã¨ migliore che di taglio. {#meglio_punte}
 
 ###### Del mover de' piedi, & della vita. {#movere_piedi}
 
@@ -15,7 +14,9 @@
 
 ###### Porta di ferro stretta. {#porta_di_ferro}
 
-###### Schermo più sicuro qual è. {#schermo_sicuro}
+###### Schermo piÃ¹ sicuro qual Ã¨. {#schermo_sicuro}
 
 ###### Guardia d'alicorno. {#alicorno}
+
+
 
