@@ -1,4 +1,4 @@
-﻿## LA QUINTA GIORNATA DEL PRIMO LIBRO:
+## LA QUINTA GIORNATA DEL PRIMO LIBRO:
 
 ### Nella quale si tratta del modo di valersi della spada, & della cappa.
 
