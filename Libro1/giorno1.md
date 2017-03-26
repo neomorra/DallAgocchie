@@ -87,33 +87,239 @@ principale ch'esser vi debbia; lo provo dalla nobiltà, la quale deve ad ogni
 altra cosa esser preferita: Et dico, \(lasciando per hora da parte le cose 
 dell'anima\) che si come il corpo humano più di tutte l'altre cose è nobile;
 così di ragione prima si deve imparare a difendere questo, che la Città, & gli 
-esserciti, come che questi per la difesa humana siano ordinati: & dovendo
+esserciti, come che questi per la difesa humana siano ordinati: & dovendo la 
+persona in ogni sorte di militia trasporsi; di necessità bisogna prima à quella 
+per tutte le occorrenze provedere. Ne vi crediate che questo mio detto contrasti
+a quel gran filosofo Solone, il quale vuole, che si debba preporre la difesa
+della patria, alla propria vita. percioché egli non intende di questa patria
+materiale, fabbricata di pietra: ma di quella radunanza di huomini, per li quali
+la Città materiale è fabricata. Ora costoro difendendosi dall'impeto de' nimici,
+anzi ributtando in un tempo stesso l'insolenza loro con arte & con maestria;
+sono detti propriamente schermirsi, quando massimamente avviene, che salvino se,
+& la repubblica. Et in questo fatto la prudenza ha il primo luogo: dove per lo
+contrario chi senza arte, & maestria alla furia del nimico s'oppone; sempre
+temerariamente vinto rimanendo; non ischermito, ma schernito ne rimane. Et
+perciò non vi avendo luogo la prudenza, anzi non vi essendo stimata; le più
+volte avviene ancora, che quest'arte, che tutta è sù la prudenza fermata, &
+fondata; in poca stima esser si vede.
+
+**Lep.** La vostra risoluzione assai mi piace: nondimeno non mi leva al tutto 
+ogni difficoltà dell'animo; percioché alle volte habbiamo veduto persone
+inesperte, & senza pratica ò cognitione alcuna dello schermire, combattendo
+haver superato, & vinto quelli c'havevan questo per particolare essercitio. Onde
+se il vostro detto fosse vero; seguiterebbe, che sempre il perito di quest'arte
+resterebbe superiore allo imperito.
+
+**Gio.** A questa difficoltà, Meser Lepido, si risponde in più modi. L'uno che
+un caso particolare, non fà che la regola universale non sia vera. L'altro, che
+la perdita, che fecero quelli che voi dite professori di questo essercitio; non
+fu fatta da loro come schermitori: atteso che è impossibile che essi, come tali,
+siano stati vinti. Mà ben può esser loro avvenuto come a pigri, ingiusti, o
+vili: & all'hora cessano di essere schermitori, tosto che son offesi.
 
 ###### Parti che si ricercano nel buono schermitore. {#buono_schermitore}
 
+Perché molte parti si ricercano al buono schermitore, & assai più à chi si
+conduce a combattere: Come a dire, ragione, animosità, forza, destrezza,
+scientia, giudicio, & prattica. Et oltre queste & altre tali, sopra tutto 
+v'interviene il divin giudicio, a noi del tutto secreto & occulto.
+
+**Lep.** Da questa vostra conclusione, mi par che nasca la confusione del vostro
+detto: Perché ogni pvolta che il combattente sarà agile, & coraggioso, &
+prenderà impresa giusta a diffinire; sarà vincitore: & per lo contrario
+perditore. Onde seguirà perciò l'arte non esser necessaria. 
+
+**Gio.** Piano, Meser Lepido: perché i termini, ne' quali la risposta mia
+procede, vi daranno a conoscere l'arte esser necessaria. Lasciando dunque da
+parte come caso speciale, ch'alcuna volta Iddio il contrario permetta; vi dico
+per regola infallibile, che ciascuno può rinuntiare al favore per lui 
+introdotto; & che Iddio ci ha dato l'ingegno di conoscere il bene e il male. Il
+che così essendo come è; sarà ancora chiaro, che se uno non si vorrà difendere, 
+ne porsi in opera; ne resterà perditore, ancor che la ragione per lui havesse:
+percioché al favor suo viene a rinunciare: & di ciò deve riprender solamente se
+stesso. nè mi negherete che la provisione necessaria non sia: la quale nasce 
+dall'arte dello schermo, come hora dirò. Io credo che quando uno haverà tagione,
+& animo, & forza di mantenerla, aggiunte a quest'arte, colui il più delle volte
+sarà il vincitore, & in questo procede l'argomento vostro. Ma quando esso 
+rinuncia il favore suo, in non volere apprendere, come si habbia a difendere, se
+avviene il contrario, a lui imputar si debbe. Però concludendo dico, che uno, a
+cui in parte manchi l'ardire, & le forze, per conseguenza è necessaria l'arte
+riparatrice a questi dubbij: perché con essa viene ad accrescer l'animo,
+assuefacendosi alla fatica, & diviene giudicioso, et accorto, si nel vantaggio
+dell'armi, come nel resto.
+
+**Lep.** Da questa vostra distintione, Meser Giovanni, nasce un altro dubbio,
+che la natura sia quella che operi, & non l'arte: percioché da natura procedono
+l'animo, le forze, la dispositione della persona, & l'havere ragione: ne altro
+bisognandoci, l'arte nulla, o poco ci gioverà.
+
+**Gio.** In questa parte hora dovete considerare, che la natura può assai
+informare un corpo a questo essercitio atto, & disposto, & con animo & forze
+convenevoli: Però giamai non mi negherete, che non sapendo alcuno del certo di
+possedere queste qualità \(come la maggior parte si ritrova\) sempre non sia
+necessario provederli cautamente, et con tutti i mezzi a tale impresa
+favorevoli. Oltra di ciò dico, che producendo la natura le cose co'l bene , &
+co'l male, ancora che uno possegga le parti dette di sopra; nondimeno non
+conoscendole, non potrà di esse valersi, se non co'l giudicio, il quale mediante
+l'arte s'acquista: & ben che sappia tirare mandritti, roversi, & punte;
+nondimeno gli potrebbe adoperar così in suo favore, come in suo pregiudicio.
+Alla quale cosa l'arte imitatrice della natura, ponendo mente; con la prova &
+con l'essercitio, cerca di farlo sciente, & capace. Et farebbe, come per
+essempio, un dire, che la natura dà le parole agli huomini, & che da natura 
+parlano:  ma però se con l'arte della eloquenza non si aiutano; mai non sapranno
+perfettamente formare il lor ragionamento, secondo le occasioni, & i tempi che
+loro si appresenteranno. Similmente da natura gli huomini hanno la voce, &
+cantano: nondimeno mai con ragione non canteranno, se la musica non vi
+s'interpone. Et da natura il Cavallo nasce forte, & atto alla battaglia: ma però
+giamai non potrà il Cavalliero servirsene a quest'uso, se prima egli non l'havrà
+con ragion domato, & havendolo al maneggio assuefatto, ad ogni suo volere non
+l'havrà fatto ubbidiente. Quanto all'esperienza, si vede principalmente, che
+ogni huomo, per coraggioso che egli sia, quando da alcuno viene sfidato:
+s'accosta a qualche valent'huomo che gl'insegni, & lo esserciti prima che'l
+giorno dell'abbattimento giunga: & questo non per altra ragione, se non che,
+quando egli ha di bisogno dello aiuto di essa; evidentemente conosce quanto
+necessaria ella sia: & que'tali che il contrario affermano, se mai di combatter
+loro avenisse, si accorgerebbono di quanto errassero: & questo c'ho detto, credo
+che basti per hora, quanto a questa parte.
+
+**Lep.** Voi m'havete in tal maniera, & con si efficaci ragioni risoluto questi
+dubij, che più della dignità di quest'arte non dubito. Et poi che mi havete a
+bastanza ragionato della ncessità, che n'ha ciascuno, non v'incresca ancora
+dirmi il modo, & la regola, che tener si debbe per impararla.
+
 ###### Theorica & prattica fondamenti dell'arti. {#fondamenti}
+
+**Gio.** Horamai siamo tanto avanti, che non voglio restare di dirvi tutta
+l'opinione mia intorno a questo. Sappiate dunque che si come tutte l'arti
+liberali consistono in Theorica, & in prattica; così ancor questa. & per la
+Theorica, & per la prattica deve essere considerata. La Theorica dell'arte dello
+schermo insegna con ragione i modi del difendersi, & dell'offendere il nimico.
+La prattica poi è quella che si acquista dalla consuetudine dell'operare, cioè
+con lungo uso, & con esercitio continuo. Ma alcuni Maestri di quest'arte a mal
+fine l'indirizzano: percioché non sapendo che la Theorica, & la prattica siano
+diverse; come prima posseggono un poco di prattica, si mettono ad insegnare: Il
+che solo procede, perché è andata in oblivione quell'antica usanza della
+creatione de' Maestri. Et sappiate, che da non molto tempo indietro, si come
+dovendosi inviare alcuno all'eccellente grado del dottorato; prima se ne fa con
+diligente esamine il saggio, & poi come è giudicato sofficiente, se gli dà il
+privilegio; Così ancora ne' Maestri di schermire si osservava: imperò che prima
+si essaminavano quelli, che ad altri volevano insegnare, se essi sapevano la
+Theorica dello schermo, & tutte l'altre cose a essa necessarie; & poi gli
+mettevano uno scolare a fronte, facendo che tirasse male i colpi, & male si
+ponesse nelle Guardie: & ciò per intendere, se colui conosceva in che cosa lo
+scolar peccasse. Dopo questo ne facevano saggio con diversi buoni scolari; co'
+quali, com'egli fosse riuscito sufficiente; da gli altri Maestri era
+privilegiato, & con le sue patenti poteva aprire scola; & questi tali erano
+Maestri authentici: Cosa veramente degna di tant'arte Perché permettere non si
+dovrebbe, che alcuno insegnasse quello di che a sufficienza instrutto non fosse.
+
+**Lep.** Fanno gran male quelli, per la cui colpa le buone usanze mancano.
+
+**Gio.** Questo è difetto del tempo, che a lungo andare ogni cosa corrompe: &
+de' Maestri ancora, che lasciano annullare le ragioni de' lor privilegi. Ma per
+seguire il cominciato ragionamento; dico, che hora è tutto il contrario: perché
+si veggono molti che fanno il maestro, & insegnano quello che farebbe loro di
+mestiero imparare: però quelli a' quali riesce male, debbono imputarlo a se
+stessi, poi che si lasciano condur sotto la disciplina di così fatti. Imperoché
+\(come di sopraho detto\) altro è il sapere, & altro l'insegnare. La diversità è
+manifesta perché uno c'habbia solo la prattica è buono a fatica per se; ma chi
+ha la Theorica è buono per altri; & chi ha la Theorica, & la prattica; è buono 
+per se, & per altri. Et tali erano quelli che authenticamente già si creavano 
+Maestri.
+
+**Lep.** Hora ch'io conosco l'eccellenza di quest'arte, & veggo, che la 
+principal parte di essa è fondata nella Theorica; volentieri saprei in che
+consiste l'ordine, & il modo d'intenderla.
 
 ###### Arte dello schermire ha sei capi. {#6capi}
 
+**Gio.** Questa si fonda, & si divide in sei capi principali: E il primo è, che
+havendo da adoprare la spada; sappiate qual sia il suo filo dritto, & quale il
+falso. Secondo in quanti modi essa può ferire. Terzo l'ordine delle guardie, &
+massimamente delle più importanti. Quarto il modo di passeggiare in esse. Quinto
+come ritrovandosi in quale si voglia di dette guardie, vi possiate difendere da
+tutti i colpi del nimico, & offendere lui. Sesto & ultimo havere cognitione
+delle strette di mezza spada, & del tempo insieme.
+
+**Lep.** Veramente conosco hora quanto questo modo sia da gli altri differente,
+& molto più facile per conseguire il frutto di essa. Hora seguite, & a capo per
+capo ditemi distesamente il tutto, acciò  che il nostro ragionamento non sia 
+senza profitto
+
 ###### Filo dritto quale. {#filo_dritto}
+
+**Gio.** Quanto al primo del filo dritto. Ogni volta che haverete impugnato la
+spada così nella destra, come nella sinistra mano, il taglio che guarderà verso
+i nodi di mezzo della vostra mano, sarà il filo dritto: & per il contrario
+quell'altro sarà il falso: & questo quanto al primo capo. Secondo la spada può
+in tre modi ferire, cioè di mandritto , di roverso, & di punta. Ma il mandritto
+in cinque nature si divide; il riverso in cinque altre similmente; & la punta in
+tre.
+
+**Lep.** Non v'incresca dirmi come s'intendano queste nature, & quali siano.
 
 ###### Colpi di più forti. {#colpi_forti}
 
+**Gio.** Tutti i colpi saranno, ò mandritti, ò riversi, ò punte. Ma ciascuno di
+essi ha seco più nature, secondo la diversità del suo colpire. Perché il
+mandritto, sarà ò fendente, ò sgualimbro, ò tondo, ò ridoppio, ò tramazzone: &
+il riverso sarà similmente delle istesse qualità, come di sopra. La punta poi si
+converte in tre nature, cioè imbroccata, stoccata, & punta riversa.
+
+**Lep.** Prima che più oltre passiate; ditemi perché così date questi nomi a'
+colpi & quali sono.
+
 ###### Mandritto. {#mandritto}
+
+**Gio.** Il mandritto si dimanda così perché dalle parti dritte comincia: & si
+chiama fendente, perché fende da capo a piedi per dritta linea.
 
 ###### Sgualimbro. {#sgualimbro}
 
+Ma sgualimbro si chiama quello mandritto, che per sgualimbro trascorre, cioè 
+dalla spalla manca al ginocchio destro dello avversario.
+
 ###### Tondo. {#tondo}
+
+Il tondo, ò traverso si domanda quello, che al traverso volta.
 
 ###### Ridoppio. {#ridoppio}
 
+Ridoppio è quello, che si parte col filo dritto della spada di sotto, & va a 
+finire alla punta della spalla dritta del nemico.
+
 ###### Tramazzone. {#tramazzone}
+
+Tramazzone è quello, che si fa co'l nodo di mano, a guisa di molinello.
 
 ###### Riverso. {#riverso}
 
+Ma i riversi così si chiamano, perché sono opposti a' dritti, cominciando dalle
+manche parti, & finendo alle dritte: & sono consimili a' mandritti, cioè di 
+quelle medesime nature.
+
 ###### Punte. Imbroccata. Stoccata. Punta riversa. {#punte}
 
+Ma venendo alle punte, quella che si fa sopra mano, fu detta imbroccata: & 
+quella che si fa sotto mano, stoccata: & quella che dalle parti manche si 
+diparte, punta riversa: & questo circa il secondo Capo.
+
+**Lep.** Non si può co'l falso della spada ferire?
+
+**Gio.** Si, ma di rado: percioché il falso più per parare, che per ferire si 
+adopra. Egli è ben vero che anco questo si divide in più nature: ma però due ve
+ne sono le più necessarie: cioè falso dritto, & falso manco.
+
 ###### Falso dritto & manco. {#falsi}
+
+Falso dritto sarà, quartendosi dalle vostre parti dritte, & andando di sotto in
+sù per la linea del mandritto. Ridoppio falso manco sarà, partendosi dal lato
+sinistro, & andando di sotto in sù per la linea del riverso ridoppio: & questo
+quanto al falso.
+
+**Lep.** Hò assai bene inteso questi due capi. Resta hora, secondo il vostro
+ordine, che delle guardie, facciate mentione.
+
 
 ###### Guardie più importanti sono otto. Coda lunga. {#coda_lunga}
 
