@@ -320,17 +320,101 @@ quanto al falso.
 **Lep.** Hò assai bene inteso questi due capi. Resta hora, secondo il vostro
 ordine, che delle guardie, facciate mentione.
 
-
 ###### Guardie più importanti sono otto. Coda lunga. {#coda_lunga}
+
+**Gio.** Hor venendo alle guardie, dico: Che assai ce ne sono, si da basso, come
+da alto: mà le più importanti sono otto, quattro da alto, & quattro da basso. Da
+basso due se ne fanno co'l piede destro innanzi, & due co'l sinistro: & hanno
+due nome, cioè coda lunga, & porta di ferro. Coda lunga sarà, quando si tiene la
+spada fuori dalle parti dritte: la quale in due altre guardie si divide: una
+delle quali coda lunga stretta si chiamerà, & l'altra alta. Coda lunga stretta è
+quella, che si fa co'l pie dritto innanzi: & coda lunga alta co'l pie manco,
+sempre tenendo la spada di fuori dalle parti dritte co'l braccio ben disteso &
+vicino alle ginocchia per di fuori,& che la punta della spada guardi il nimico.
+Questa è così detta a similitudine de gli huomini grandi, i quali di continuo da
+assai gente accompagnati sono, & però si dice per volgare proverbio, Guardati da
+quelli che hanno la coda longa, cioè che hanno seguito. Et non altrimenti
+bisogna da questa guardia guardarsi, perché hà la coda lunga.
 
 ###### Porta di ferro. {#porta_di_ferro}
 
+La seconda è detta porta di ferro, a similitudine d'una porta di ferro, che a
+volerla atterrare ci vole fatica, & arte assai. Così a ferire chi sia posto in
+questa guardia; bisogna arte & ingegno. Questa similmente si divide in due
+nature, l'una detta porta di ferro, & l'altra cinghiale. Porta di ferro la prima
+si conosce, quando si è col destro piede innanzi, & che la spada sia col pugno
+pari al ginocchio per di dentro, & la punta della spada guardi il nimico. Mà
+cinghial porta di ferro sarà, quando si è col piede sinistro innanzi, & per
+traverso, cioè verso le vostre parti manche, & che'l pugno della spada sia
+presso al ginocchio sinistro per di dentro, & la spalla destra guardi il nimico.
+Così la dimandarono dalla comparatione del Cinghiale, o diciamo Porco selvatico:
+il quale quando è assalito, viene col dente per traverso a ferire: & queste sono
+le guardie basse.
+
+**Lep.** Gabrei grato sapere, c'havendo voi detto coda lunga stretta all'una
+delle guardie, sè all'altra dire similmente si potrà porta di ferro stretta.
+
+**Gio.* Stretta, & larga, & alta se le dice: perché questa guardia si può fare
+in tre modi, & così coda lunga. Ma per venire alle brevità, io non intendeva far
+mention d'altra, et mi contentava che per hora aveste cognition di porta di
+ferro, & così di coda lunga tanto co'l destro, quanto co'l sinistro piede
+innanzi, per esser dall'una all'altra poca differenza. Ma poi che tanto curioso
+vi veggo di saper il tutto; vi dirò:
+
 ###### Porta di ferro stretta, & larga. {#pdf_stretta_larga}
+
+Ogni volta che haverete il pie dritto
+innanzi un passo, il quale non sia grande ne piccolo, ma proportionato co'l
+pugno della spada di dentro, & appresso il ginocchio destro, & che la punta di
+essa insieme con la spalla dritta guardi il nimico, questa si chiamerà porta di
+ferro stretta: & fù detta stretta per esser guardia molto sicura. Ma se vi
+discosterete col pugno alquanto dal ginocchio verso le vostre parti manche,
+chinando un poco lapunta verso terra; si domanderà porta di ferro larga: perché
+fa della persona maggiore scoperta: & essendo in porta di ferro larga, se
+alquanto alzerete il pugno della spada; questa sarà porta di ferro alta, per
+essere più alta dell'altre due. Et questo che di porta di ferro si è detto,
+parimente si puo dire della guardia di cinghiale porta di ferro.
 
 ###### Coda lunga di tre nature. {#nature_coda}
 
+Ora io dissi di sopra, che la guardia di coda lunga ancor si divide in tre
+nature. La prima si fa co'l piede destro innanzi verso le vostre parti dritte,
+& che'l pugno della spada sia di fuori, & presso al ginocchio destro, & che la 
+punta & la persona guardi il nimico: & è detta coda lunga stretta, per esser
+ancor essa guardia stretta, & molto sicura. La seconda sarà, che essendo in coda
+lunga stretta, ritirando alquanto il pugno, % la spada indietro, & tenendo la
+punta bassa, dimanderassi coda lunga larga; così detta perché la spada più dal
+nimico si allontana. Terza essendo in coda lunga larga, voltando la punta della
+spada indietro; si chamerà coda lunga distesa: & perché la spada si distende di
+dietro; pigliò questo nome ancora di coda lunga. Co'l pie manco innanzi si
+possono fare tre guardie, cioè coda lunga alta, coda lunga larga, & coda lunga
+distesa: & queste son così chiamate per le ragioni sopradette.
+
+**Lep.** Non mi pento già io, Meser Giovanni, della mia curiosità, poiché m'ha
+fatto intendere da voi più di quello ch'era l'intention mia, merce della vostra
+gentilezza: però seguite il ragionare dell'altre
+
 ###### Guardia & sue specie. {#guardie}
 
+**Gio.** Quanto alle guardie alte, La prima si chiamerà guardia d'alicorno: & si
+conosce quando l'impugnatura della spada è volta all'in giù, e il braccio ben
+distesso, & la punta alquanto bassa, che guardi il volto, o il petto del nimico,
+a similitudine dell'Alicorno: il quale essendo assalito, combatte a quella guisa
+co'l suo corno. La seconda si domanderà guardia di testa: la quale è quando si
+tiene il braccio ben disteso per il dritto del volto del nimico, & la spada alla
+traversa, cioè che la punta di essa vada verso le vostre parti manche, &
+alquanto verso terra: & è così detta, perché assicura le parti di sopra. La
+terza si dice guardia di faccia: & si conosce, quando il braccio è ben disteso,
+& il dritto della mano stà volto all'in sù, & ch'el fil dritto della spada
+guarda in dentro, cioè verso le parti sinistre, & la punta insieme co'l fianco
+destro debbe guardare verso la faccia del nimico. questa è così detta, perché
+guarda il volto benissimo. La quarta si chiamerà guardia d'entrare: la quale si
+fa per il contrario della sopra detta, cioè, si tiene il braccio & la spada
+distesi, pur verso il volto del nimico: ma il dritto della mano guarderà
+all'ingiù, & il fil dritto della spada ha da guardare in fuori, cioè verso le
+parti destre; & la persona debbe stare alquanto con le parti dritte, volte verso
+l'avversario: & è così chiamata, percioché è guardia fortissima per entrare.
+Queste quattro guardie si posson fare in due modi, ò col destro, ò co'l sinistro
+piede innanzi. & questo è quanto al terzo capo.
+
 ###### Passeggiare nelle guardie, come si fa. {#passeggiata_guardie}
-
-
