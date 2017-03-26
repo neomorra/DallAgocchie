@@ -51,7 +51,7 @@ sommamente desidero, & debbo sodisfare; dirò in parte il mio parere.
 comporta: & principalmente onde nasce, che un'arte si degna sia tenuta in così  
 poca reputatione?
 
-###### Arte dello schermire perché si poco stimata {#poca_stima}
+###### Arte dello schermire perché si poco stimata. {#poca_stima}
 
 **Gio.** Intorno a questo quesito, come che varij variamente nè favellino; io  
 sono di quelli che tengo opinione, ciò non procedere da altro, se non che molti  
@@ -63,29 +63,68 @@ sprezzano.
 **Lep.** Dichiaratemi, vi prego, per qual ragione questa sia fondamento  
 dell'arte militare.
 
-###### Schermo perché è fondamento dell'arte militare {#fondamento}
+###### Schermo perché è fondamento dell'arte militare. {#fondamento}
 
 **Gio.** Vi dirò, si può pigliar questo nome in generale, & in particolare. In  
 generale, per ogni forte di militia. In particolare, per lo combattere da solo  
 a solo. Ogni volta dunque, che altro non s'esprime; si deve pigliar per lo  
-combattere da solo a solo. In generale poi \(come vi ho detto\) si piglia per ogni  
-forte di militia: percioché l'arte militare in altro non consiste, che in saper  
-con giudicio & prudenza difendersi dal nimico, & lui offendere, così nella città,  
-come negli eserciti, & in ogni altro luogo: perché non essendo, ne significando  
-altro questa voce schermire, che difendersi, con modo di offendere il nemico;  
-chiaro é che si può pigliare generalmente per ogni forte di combattimento. Ma  
-pigliandola noi in specie, per lo combattere da solo a solo, è manifesto, che è  
-parte, anzi scala, & guida all'arte della guerra, per esser necessario molte  
-volte usare quest'arte in difesa della propria vita; Come per gli esempij di  
-tante Historie si legge, & ogni dì si vede. Perciò vi dico ch'uno non può esser  
-fondato, ne perfetto nell'arte della militia, il qual non habbia questa parte:  
-atteso che niuna cosa si chiama perfetta, quando se le debbe o può aggiungere; &  
-dovendosi aggiungere all'arte del combattere il sapere difendere la propria  
-persona, anzi ciò essendo il fondamento principale; chi non haverà quest'arte,  
-non potrà giamai esser chiamato perfetto. Che questa sia la princuipale ch'esser  
-vi debbia; lo provo dalla nobiltà, la quale deve ad ogni altra cosa esser  
-preferita: Et dico, \(lasciando per hora da parte le cose dell'anima\) che si come  
-il corpo humano più di tutte l'altre cose è nobile; così di ragione prima si  
-deve imparare a difendere questo, che la Città, & gli esserciti, come che questi  
-per la difesa humana siano ordinati: & dovendo
+combattere da solo a solo. In generale poi \(come vi ho detto\) si piglia per 
+ogni forte di militia: percioché l'arte militare in altro non consiste, che in 
+saper con giudicio & prudenza difendersi dal nimico, & lui offendere, così nella
+città, come negli eserciti, & in ogni altro luogo: perché non essendo, ne 
+significando altro questa voce schermire, che difendersi, con modo di offendere 
+il nemico; chiaro é che si può pigliare generalmente per ogni forte di 
+combattimento. Ma igliandola noi in specie, per lo combattere da solo a solo, è 
+manifesto, che è parte, anzi scala, & guida all'arte della guerra, per esser 
+necessario molte volte usare quest'arte in difesa della propria vita; Come per 
+gli esempij di tante Historie si legge, & ogni dì si vede. Perciò vi dico ch'uno
+non può esser fondato, ne perfetto nell'arte della militia, il qual non habbia
+questa parte: atteso che niuna cosa si chiama perfetta, quando se le debbe o può
+aggiungere; & dovendosi aggiungere all'arte del combattere il sapere difendere 
+la propria persona, anzi ciò essendo il fondamento principale; chi non haverà
+quest'arte, non potrà giamai esser chiamato perfetto. Che questa sia la 
+principale ch'esser vi debbia; lo provo dalla nobiltà, la quale deve ad ogni
+altra cosa esser preferita: Et dico, \(lasciando per hora da parte le cose 
+dell'anima\) che si come il corpo humano più di tutte l'altre cose è nobile;
+così di ragione prima si deve imparare a difendere questo, che la Città, & gli 
+esserciti, come che questi per la difesa humana siano ordinati: & dovendo
+
+###### Parti che si ricercano nel buono schermitore. {#buono_schermitore}
+
+###### Theorica & prattica fondamenti dell'arti. {#fondamenti}
+
+###### Arte dello schermire ha sei capi. {#6capi}
+
+###### Filo dritto quale. {#filo_dritto}
+
+###### Colpi di più forti. {#colpi_forti}
+
+###### Mandritto. {#mandritto}
+
+###### Sgualimbro. {#sgualimbro}
+
+###### Tondo. {#tondo}
+
+###### Ridoppio. {#ridoppio}
+
+###### Tramazzone. {#tramazzone}
+
+###### Riverso. {#riverso}
+
+###### Punte. Imbroccata. Stoccata. Punta riversa. {#punte}
+
+###### Falso dritto & manco. {#falsi}
+
+###### Guardie più importanti sono otto. Coda lunga. {#coda_lunga}
+
+###### Porta di ferro. {#porta_di_ferro}
+
+###### Porta di ferro stretta, & larga. {#pdf_stretta_larga}
+
+###### Coda lunga di tre nature. {#nature_coda}
+
+###### Guardia & sue specie. {#guardie}
+
+###### Passeggiare nelle guardie, come si fa. {#passeggiata_guardie}
+
 
