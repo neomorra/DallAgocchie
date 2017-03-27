@@ -417,4 +417,84 @@ l'avversario: & è così chiamata, percioché è guardia fortissima per entrare.
 Queste quattro guardie si posson fare in due modi, ò col destro, ò co'l sinistro
 piede innanzi. & questo è quanto al terzo capo.
 
+**Lep.** Hora vorrei sapere, se da alto vi sono oltra queste altre guardie, 
+che siano in uso: delle quali poteste far mentione?
+
+**Gio.** Tre ne son restate, delle quali, accio c'habbiate notitia di tutte, ho
+pensato volervi ragionare. La prima si chiama guardia alta, & si conosce, quando
+l'impugnatura della spada guarda all'insù co'l braccio ben disteso, & la punta
+stia volta all'indietro: & così è chiamata per esser la più alta che si possa
+fare. La seconda si fa con la spada sopra il braccio sinistro, Et la terza di
+sotto, facendo che la punta guardi di dietro: & ritengono il medesimo nome. Ma
+havendo già bastanza trattato delle guardie; in questo quarto capo, ragioneremo
+del passeggiare in esse, 
+
+**Lep.** Questo mi sarà grato. Mà prima desidero sapere circa le gia dette
+guardie, che in diversi modi nominate havete, s'altrimente le potreste dire, &
+per qual ragione così siano dette: perché di questo più volte ho udito diversi
+pareri?
+
+**Gio.** Voi dovete sapere, che tali nomi, furono posti a le guardie dagli 
+antichi, & poi da' moderni per uso confermati: & se non da tutti, almeno dalla
+maggior parte c'hanno lume di quest'arte, per tali sono intesi & accettati: non
+che in altro modo non possino esser detti: ma il volere introdur novi nomi alle
+orecchie assueffatte a' primi; non sarebbe altro, che un noiarle senza profitto,
+& una mutatione senza giovamento. Vero è, che ciascuno se gli può formare a modo
+suo, pur che sia inteso. Ma noi seguendo l'accettata regola, & l'uso de' più;
+come ritrovati gli habbiamo, così li lasceremo.
+
+**Lep.** Poi che de' nomi, & della ragione di essi attribuite alle guardie
+m'havete sodisfatto, il preso ordine seguendo del modo del passeggiare in esse,
+aspetto che da voi mi sia dato cognitione.
+
 ###### Passeggiare nelle guardie, come si fa. {#passeggiata_guardie}
+
+**Gio.** Con ragione & arte si passeggia, & si và a ritrovare l'avversario in
+tutte le guardie: & questo far si può con l'uno & con l'altro piede cominciando,
+così per traverso, come spingendo un piede l'altro innanzi, secondo il tempo, &
+il bisogno. Nondimeno il passeggiare co'l passo ne grande, ne picciolo, è di
+maggior utilità: perché così si può & crescere innanzi, & ritornare indietro
+senza discomodo della persona, accompagnando sempre la mano co'l piede. Mà
+bisogna avvertire, che quella gamba, che sarà dinanzi; debbe stare un poco
+piegata nel ginocchio, & il piede di essa debbe stare dritto verso il nimico, &
+la gamba che sarà di dietro starà un poco curva, & col piede alquanto di
+traverso; in maniera che ogni movimento sia piedo di gratia. & questo è quanto
+al quarto capo.
+
+**Lep.** Caro sommamente mi sarebbe, che meglio mi dichiaraste il modo, che si
+debbe tenere nel passeggiare in dette guardie con la spada in mano, che non l'ho
+inteso a sufficienza.
+
+**Gio.** Presupponiamo c'habbiate la spada al lato sinistro in atto di metter
+mano, & il pie dritto col calcagno appresso al manco; amendue le ginocchia
+staranno dritte, & non arcate, accomodandovi con più gratia che sia possibile:
+& ciò fatto porrete innanzi il pie destro verso le vostre parti dritte: & in
+quel tempo distenderete il braccio, & farete falso, & riverso sgualimbro, o vero
+farete dui riversi, il primo tondo, & il secondo, pure sgualimbro, andando con
+la spada in coda lunga stretta, & di qui passerete co'l pie sinistro innanzi 
+verso le vostre manche parti, facendo in quell'istante falso, & mandritto
+sgualimbro, & la spada calerà in cinghiale porta di ferro: & poi andarete co'l
+pie destro innanzi un passo, & in tal tempo volgerete un dritto trammazzone: il
+quale si fermerà in porta di ferro stretta. Indi crescerete innanzi co'l manco
+piede, facendo falso, & riverso sgualimbro, & la spada anderà in coda lunga 
+alta. Poi passerete del destro piede innanzi, & nel medesimo tempo volgerete un
+riverso ridoppio, fermando la spada in guardia d'alicorno, & essendo fermo nella
+detta guardia spingerete un'imbroccata senza passeggiamento alcuno, & la spada
+si fermerà in porta di ferro stretta. Di qui ritirerete il pie dritto in dietro
+un passo, & tutto a un tempo farete falso, & riverso sgualimbro, & la spada
+ritornerà in coda lunga alta. Poi trarrete il manco piede indietro, & all'hora
+volgerete un mandritto tramazzone: il quale si fermerà in porta di ferro
+stretta. Indi ritornerete il pie destro indietro un passo, volgendo in quel
+tempo un dritto tramazzone, co'l quale calerete in cinghiale porta di ferro, &
+di qui ritirarete indietro il pie sinistro, facendo in quell'instante falso &
+riverso sgualimbro, & la spada ritornerà in coda lunga stretta, & così sarete
+ritornato con le istesse guardie al primo luogo.
+
+**Lep.** Per che volete ch'io passeggi così innanzi, &  poi ritorni indietro?
+
+**Gio.** Perché facciate buona prattica nelle mutationi delle guardi, si innanzi
+come indietro, essendo cosa necessaria nell'arte, & di grandissimo giovamento: &
+accioché sappiate; questo passeggiare è una delle principali cose, ove si debbe
+essercitare chi vole haver gratia con l'arme in mano.
+
+**Lep.** Mi par d'essere
