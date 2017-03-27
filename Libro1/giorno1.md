@@ -497,4 +497,15 @@ come indietro, essendo cosa necessaria nell'arte, & di grandissimo giovamento: &
 accioché sappiate; questo passeggiare è una delle principali cose, ove si debbe
 essercitare chi vole haver gratia con l'arme in mano.
 
-**Lep.** Mi par d'essere
+**Lep.** Mi par d'essere assai bene informato di tutti i colpi che con la spada
+si possano trarre, & delle guardie co' lor nomi, & della maniera, che si debbe
+tenere nel porsi, & nel passeggiare in esse. Resta hora il quinto, & sesto capo,
+de' quali, come più importanti non vi gravi di ragionare, il più che potete, &
+in particolare di spada sola: & poi se tempo ci sarà , discorrerete delle altre
+armi.
+
+**Gio.** A me nulla incresce, ove speri potervi compiacere: ma parmi che l'hora
+sia tarda, & il ragionamento non havrà da esser breve, si che stimo, che non sia
+fuori di proposito differirlo a domani, 
+
+**Lep.** Facciamo come vi piace.
