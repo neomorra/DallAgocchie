@@ -1,6 +1,7 @@
 ### PROHEMIO
 # DI MESSER GIOVANNI DALL'AGOCCHIE BOLOGNESE
-##Sopra il suo libro dell'arte dello Schermire.
+
+## Sopra il suo libro dell'arte dello Schermire.
 
 FU stimata sempre lodevol cosa, il giovare & far beneficio altrui: Il che da me
 considerato; è stato cagione ch'io mi son risoluto di ridurre in un breve
