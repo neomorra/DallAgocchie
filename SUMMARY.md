@@ -57,3 +57,7 @@
     * [Quarto modo di provocare & offendere.](Libro1/giorno4.md#quarta)
     * [Quinto modo di provocare & offendere.](Libro1/giorno4.md#quinta)
 * [Quinta Giornata](Libro1/giorno5.md)
+    * [Cappa come s'imbraccia.](Libro1/giorno5.md#imbracciare_cappa)
+    * [Colpi finti in che modo si devono parare.](Libro1/giorno5.md#parare_finti)
+    * [Di provocare & ferire il nimico, e schermirsi dalle sue provocationi in guardia di coda lunga stretta.](Libro1/giorno5.md#provocationi)
+    * [Cappa come s'imbraccia.](Libro1/giorno5.md#imbracciare_cappa2)
