@@ -26,7 +26,14 @@
     * [Guardia & sue specie.](Libro1/giorno1.md#guardie)
     * [Passeggiare nelle guardie, come si fa.](Libro1/giorno1.md#passeggiata_guardie)    
 * [Seconda Giornata](Libro1/giorno2.md)
-
+    * [Spada sola, perché preferita all'altre armi.](Libro1/giorno2.md#preferita)
+    * [Parar con la spada in quanti modi si fa.](Libro1/giorno2.md#parare)
+    * [Ferir di punta è migliore che di taglio.](Libro1/giorno2.md#meglio_punte)
+    * [Del mover de' piedi, & della vita.](Libro1/giorno2.md#movere_piedi)
+    * [Modi di difendersi dal numico, & d'offender lui.](Libro1/giorno2.md#difesa_offesa)
+    * [Porta di ferro stretta.](Libro1/giorno2.md#porta_di_ferro)
+    * [Schermo più sicuro qual è.](Libro1/giorno2.md#schermo_sicuro)
+    * [Guardia d'alicorno.](Libro1/giorno2.md#alicorno)
 * [Terza Giornata](Libro1/giorno3.md)
 
 * [Quarta Giornata](Libro1/giorno4.md)
