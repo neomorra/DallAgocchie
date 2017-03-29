@@ -1,0 +1,6 @@
+{
+    pdf: {
+        fontFamily:'serif',
+        paperSize: 'a5'
+    }
+}
