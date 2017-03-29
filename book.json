@@ -1,6 +1,6 @@
 {
-    pdf: {
-        fontFamily:'serif',
-        paperSize: 'a5'
+    "pdf": {
+        "fontFamily":'serif',
+        "paperSize": 'a5'
     }
 }
