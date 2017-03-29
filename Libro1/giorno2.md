@@ -66,7 +66,26 @@ accioché con più facilità possiate comprende il resto.
 
 ###### Parar con la spada in quanti modi si fa. {#parare}
 
-Havete dunque à sapere; che in due
+Havete dunque à sapere; che in due modi soli con la spada si può parare, ò co'l
+fil dritto di essa, ò co'l falso. Il qual falso si dicide in due nature; come vi
+hò detto, cioè dritto, & manco. Del falso dritto ve ne potete servire, per
+urtare in fuori la spada del nimico, cioè verso le sue parti destre: & del falso
+manco verso le sue parti sinistre. Obni volta dunque che urtarete il colpo co'l
+falso manco; potete ferire si di taglio, come di punta. Mà quando l'urtarete
+co'l falso dritto; non potete ferire se non di taglio. Però voglio avertirvi,
+che volendo ferire di mandritto, mentre che vi moverete co'l falso dritto per
+andare à urtare il colpo del nimico; subito volgerete il nodo della mano
+all'ingiù, volgendo la persona dietro alle vostre parti destre, che ciò facendo
+verrete à urtare quasi co'l fil dritto nella nimica spada, & nel medesimo tempo
+volgerete un dritto tramazzone, che così sarete più sicuro: perché più vi
+discosterete la spada del nimico, & ancor verrete à parare, & ferire quasi in un
+tempo: & di più la spada sempre sarà alla presenza dell'avversario. Mà bisogna
+esser disciolto della vita, & prestissimo, di nodo di mano, perché altrimenti
+non sareste profitto.
+
+**Lep.** Perché cagione?
+
+**Gio.** 
 
 ###### Ferir di punta è migliore che di taglio. {#meglio_punte}
 
