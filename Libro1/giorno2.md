@@ -241,7 +241,7 @@ difese & offese, che si possono far contra i mandritti, i riversi, & le punte,
 ritrovandosi in coda lunga stretta.
 
 **Lep.** L'ordine da voi tenuto in ragionar di questa guardia, m'è veramente
-stato di grandissima sodisfattione. Però seuite il rimanente.
+stato di grandissima sodisfattione. Però seguite il rimanente.
 
 **Gio.** Vi converrà nell'altre tenere il medesimo ordine: percioché questa è la
 migliore strada, & la più facile, che si possa usare, per condurvi alla
