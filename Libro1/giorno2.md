@@ -280,9 +280,109 @@ punta per faccia, ritornando subito all'usata guardia. Ma quando il nimico vi
 spingesse di una punta sopramano; potete passare innanzi del pie dritto,
 parandola co'lò falso nel modo che vi dissi ne gli avertimenti di sopra, cioè
 volgendo ben la persona dietro alle vostre parti destre, insieme co'l nodo della
-mano, co'l quale gli volgerete per testa due dritti tramazzoni: il che fatto vi agiarete nella medesima guardia. 
+mano, co'l quale gli volgerete per testa due dritti tramazzoni: il che fatto vi
+agiarete nella medesima guardia. Potete ancor passare innanzi del pie destro, &
+pararla con mezo mandritto sgualimbro, & subito ferirlo nel petto d'una punta
+riversa, ò vero segarli per faccia d'un riverso tondo seguitato da un'altro
+riverso, co'l qual ritornerete in coda lunga alta. Voi similmente potete
+ritornar del pie manco indietro un passo, & tutto à un tempo ferirli con mezzo
+mandritto la nemica mano: & dopo questo farete una volta di pugno, ritornando
+innanzi co'l piede, & assettandovi nella guardia sopradetta. Ma s'egli vi
+tirasse una stoccata per il petto, voi co'l falso la schifarete, volgendo ben il
+nodo della mano, & la vita insieme, & tutto à un tempo crescendo innanzi, lo
+ferirete per testa di due dritti, di nodo di mano, facendo che l'ultimo cali in
+porta di ferro. Vi tornerà bene ancora pararla co'l filo dritto della spada, &
+subito spingerli la punta per il volto, ò vero segarli d'un riverso tondo per
+faccia, Voi potete appresso nel passare del piede accompagnare il forte del fil
+dritto della vostra spada sopra quella del nimico, spingendoli la punta per il
+petto. Si può etiamdio tornare il pie manco all'indietro, e in quel tempo darli
+di mezzo mandritto per la mano della spada. Si potrebbe similmente passare del
+pie dritto à gran passo verso le parti manche del nimico, e in tal passaggio
+spingerli per fianco una punta sotto mano. Oltra di ciò dalla detta punta vi
+difenderete, passando del pie destro verso le sue parti sinistre, volgendoli
+tutto à un tempo un riverso tramazzone su il braccio destro. Et questa è la
+maniera del difendervi dal nimico, & offendere lui, quando egli vi volesse
+ferire, si di tagli, come di punta, & sì da alto, come da basso, ritrovandovi
+nella sopradetta guardia di coda lunga alta.
+
+**Lep.** Queste difese, & offese, delle quali hora havete parlato, à me pare che
+siano simili à quelle di coda lunga stretta.
+
+**Gio.** E vero; perché queste due guardie son di una istessa natura, ne altra
+differenza vi è, che'l passare che si fa co'l destro piede, del qual non si può
+fare di meno à volere parare i colpi del nimico, & offender lui. Et ancor che
+non vi sia altra differenza che quella c'ho detto, per questo non hò voluto
+restare di ragionarvi di essa ancora, et dimostrarvi apieno tutto quel che in
+detta guardia far si può: accioché meglio veniate in cognition del tutto.
+
+**Lep.** Spero con questo ordine ottenere da voi quanto desidero.
 
 ###### Porta di ferro stretta. {#porta_di_ferro}
+
+**Gio.** Hor venendo al ragionare della terza guardia, che sarà porta di ferro
+stretta; nella quale essendo fermo contra il vostro nimico, & ch'egli vi tirasse
+per testa d'un mandritto fendente; potete urtarlo con un falso manco, facendo
+che'l pie sinistro spinga il destro innanzi: indi subito segarli d'un mandritto
+per faccia, il quale ritornerà alla detta guardia, ò vero come haverete parato
+il detto colpo; passerete del pie manco verso le parti dritte del nimico,
+volgendoli in quel tempo un riverso per testa. Potete ancora quando haverete
+parato co'l falso il detto fendente, volgere il pungo all'ingiù, & subito
+spingerli la punta nel volto seguita da un dritto tramazzone, il quale si
+fermerà alla guardia predetta. Si può similmente mentre il nimico tira il
+fendente, parare in guardia di testa, passando incontinente del pie destro verso
+le sue parti sinistre, & darli per testa di due dritti tramazzoni, ò vero
+spingerli un'imbroccata per il petto, la quale calerà alla guardia nominata di
+sopra. Voi potete appresso schermirvi con un riverso sgualimbro, passando
+alquanto del pie manco verso le sue parti dritte, & subito crescere del destro
+innanzi, spingendoli per fianco una punta sopramano, ò volgerli d'un riverso per
+testa, & ciò fatto ridurvi all'usata guardia. Anchora potete parare il detto
+colpo in guardia di faccia, & nel medesimo tempo spingerli la punta nel volto,
+et subito ritornare alla guardia sopradetta. Ma s'el nimico vi tirasse dalle
+parti di sopra di mandritto sgualimbro, ò tondo; vi schermirete da quelli, ò in
+guardia di testa, ò in guardia di faccia, secondo che vi tornerà comodo,
+dandogli in risposta di quello che più sarà opportuno: perché contra essi potete
+fare quasi tutte le medesime difese, c'havete fatto nello schermo del mandritto
+fendente. Ma per far ritorno dico, che quando egli vi rispondesse d'un mandritto
+per gamba, potete tirare il pie dritto presso al manco, spingendoli in quel
+tempo la punta nella faccia, et ciò fatto ritornare in porta di ferro. Ma s'egli
+vi tirasse di riverso dalle parti di sopra, potete urtarlo co'l falso della
+spada, et immantinente volgerli d'un riverso per testa, ò vero dopo che haverete
+urtato il colpo, potrete volgere il pugno all'ingiù, e spingerli la punta per il
+volto, seguita da un dritto tramazzone, co'l quale vi ridurrete alla sopraddetta
+guardia. Si può ancor parare in guardia di testa, et subito ferirlo, ò d'un
+mandritto, ò d'una punta sopramano. Potete oltra di ciò urtare il detto riverso
+co'l fil dritto della spada, et subito volgere la mano all'insù, et segarli d'un
+mandritto per faccia, ò vero come haverete urtato il colpo; potete cacciarli
+un'imbroccata per il petto. Puossi anco parare in guardia d'entrare, & tutto à
+un tempo spingerli la punta nel volto; il che fatto si deve ritornare all'usata
+guardia. Ma s'egli vi tirasse di riverso per gamba; vi schermirete con un
+riverso ridoppio, & in un tratto li volgerete d'un riverso per testa, ò li
+spingerete la punta ne' fianchi, ò vero tirerete la gamba alquanto indietro,
+spingendoli in quell'istante la punta nella faccia. Ma se per caso egli vi
+tirasse di riverso ridoppio, lo pararete co'l fil dritto della spada, &
+incontinente lo ferirete, ò di riverso tondo, ò di punta riversa, seguita da un
+dritto tramazzone, co'l quale vi ridurrete alla guardia sopradetta. Ma se vi
+spingesse d'un'inmbroccata per il petto; la potete parare co'l falso della
+spada, passando in quel tempo del pie destro verso le sue parti dritte,
+volgendoli d'un riverso nel nimico braccio, & indi subito ritornando in porta di
+ferro. Vi sarà ancora buono difendervi dalla detta imbroccata con un riverso
+sgualimbro, & con prestezza spingerli per fianco una punta sopramano. Si può
+ancora accompagnare il vostro fil dritto con la spada del nimico, spingendoli
+subito la punta nel volto. La potreste oltra di ciò parare con un dritto
+tramazzone, tirando in quel tempo il pie destro dietro al sinistro, et la spada
+anderà in cinghial porta di ferro: il che fatto crescerete co'l pie dritto
+innanzi un passo, da un dritto tramazzone accompagnato, il quale ritornerà alla
+predetta guardia. Ma quando egli vi tirasse una punta sotto mano, la potete
+parare con un falso manco, & poi segarli di mandritto per faccia, ò volgerli di
+riverso per testa, facendo che un piede spinga l'altro innanzi. Inoltre come
+haverete urtato la detta punta co'l falso della spada, potete fare una mezza
+volta di pugno, & tutto à un tempo spingerli la punta per faccia, accompagnata
+da un dritto tramazzone, co'l quale andarete alla guardia di sopra nominata. Si
+può similmente difenderla con un riverso sgualimbro, crescendo alquanto del pie
+manco verso le parti dritte del nimico: indi scorrere del destro innanzi, &
+ferirlo d'un riverso per coscia, ò vero dopo che haverete parato, potrete
+spingerli un'imbroccata per fianco, con la quale vi fermerete nella predetta
+guardia. Potete ancora
 
 ###### Schermo più sicuro qual è. {#schermo_sicuro}
 
