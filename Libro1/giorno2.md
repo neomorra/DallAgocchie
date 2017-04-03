@@ -405,11 +405,99 @@ del destro piede innanzi, & parare in guardia di testa, & subito volgerli due
 dritti tramazzoni dalle parti di sopra, ò spingerli un'imbroccata per il petto,
 facendo che la gamba sinistra seguiti la destra per di dietro, & subito
 ritornare il pie dritto indietro un passo insieme con un dritto tramazzone, co'l
-quale vi fermerete alla detta guardia. 
+quale vi fermerete alla detta guardia. Potete ancora pararlo in guardia
+d'entrare, crescendo innanzi del pie destro, & nel medesimo tempo spingerli la
+punta nel volto. Vi difenderete ancora se urtarete con un falso manco di sotto
+in sù il detto colpo, passando tosto del pie dritto innanzi, & subito
+volgendogli un riverso per testa, ò segandoli di mandritto per il braccio: & ciò
+fatto rimettervi alla guardia predetta. Sarà utile anco nel passare innanzi,
+andare con la spada in guardia di faccia à schermirvi, & in quel tempo spingerli
+la punta nel petto. Oltra di ciò come haverete parato in guardia di faccia
+potete crescere del pie manco verso le parti dritte del nimico, & volgerli d'un
+riverso per testa, & subito ritornare nella vostra guardia. Ma s'egli vi tirasse
+di riverso per testa potete pararlo co'l falso della spada, & ferirlo per testa
+d'un simil riverso: ò vero come haverete parato co'l falso, volgerete il pugno
+all'ingù, spingendoli la punta per faccia. Si può ancor urtare con un riverso
+sgualimbro, crescendo in quel tempo del pie destro innanzi, & cacciarli
+un'imbroccata per fianco. Appresso potrete andare con la spada in guardia
+d'entrare, & quivi schermirvi da esso, spingedoli nel medesimo tempo la punta
+nel volto: il che fatto, ritornerete all'usata guardia. Ma quando egli vi
+rispondesse di riverso per gamba potete crescere del pie dritto innanzi, &
+parare con un riverso ridoppio, spingendoli in risposta d'una imbroccata per il
+petto, ò vero mentre ch'egli vi tirerà per gamba, tirarete il piede
+all'indietro, cacciandoli in quel tempo una punta per faccia, & ciò fatto vi
+ridurrete alla guardia sudetta. Ma se per caso egli vi spingesse una punta
+sopramano la potete parare co'l falso, & volgerli di riverso per testa, ò
+segarli di mandritto per faccia. Potete anco urtala co'l fil dritto della spada,
+passando tosto del destro piede innanzi, e spingendoli la punta per fianco. Si
+può in oltre nello spingervi la imbroccata, accompagnare il vostro fil dritto
+sopra la sua spada, & tutto à un tempo passare innanzi, et cacciarli la punta
+per il volto. Voi la potete similmente difendere, tirando il pie manco di dietro
+al destro, e in tal tempo volgerli un dritto tramazzone per la man della spada.
+et poi subito ritornare in cinghiale porta di ferro. Ma se'l nimico vi volesse
+ferire d'una punta sotto mano; potete pararla con un falso manco, crescendo del
+pie dritto innanzi, & subito volgerli un riverso per testa, ò segarli di
+mandritto per faccia: ò vero come haverete parato co'l falso; potete fare una
+mezza volta di pugno, e spingerli la punta per il volto. Vi gioverà etiamdio
+alla detta stoccata tirare il pie manco all'indietro, & in quel tempo volgerli
+un dritto tramazzone per la nimica mano: ò vero come egli spingerà la stoccata;
+vi accompagnerete con essa, co'l forte del vostro fil dritto, crescendo del pie
+destro innanzi: & nel medesimo tempo gli spingerete la punta per il petto. Si
+può appresso pararconun riverso sgualimbro, passando subito innanzi, & ferendolo
+d'una imbroccata per fianco, accompagnata da un dritto tramazzone: il quale
+anderà in porta di ferro: & quindi subito ritornarete del pie dritto indietro un
+passo, insieme con un mandritto di nodo di mano, co'l quale vi fermerete alla
+detta guardia. Et con questo haverò finito la dichiaratione di queste quattro
+guardie più necessarie: nelle quali vi hò dimostrate la difesa, si co'l fil
+falso, come etiamdio co'l fil dritto della spada, insieme con le offese, che in
+esse fare si possono.
+
+**Lep.** Di questi due schermi qual ritenete voi migliore?
 
 ###### Schermo più sicuro qual è. {#schermo_sicuro}
 
+**Gio.** Tutti due son buoni; ma però gli schermi, che si fanno co'l fil dritto
+della spada, son migliori, & più sicuri. Perché quasi sempre si fanno nel forte
+della spada, cioè dal mezzo indietro, et ancor \(come vi hò detto\) si può
+sempre ferire si di punta, come di taglio; & di più la punta della spada non si
+lieva quasi mai dalla presenza del nimico. Ma per il contrario gli schermi, che
+si fanno co'l falso dritto, son men forti & men sicuri: perché la maggior parte
+di essi si fanno co'l debole della spada: il quale è dal mezzo innanzi, ne mai
+si può ferire di punta, & essa ancora si diparte dalla presenza del nimico: si
+che per queste ragioni io tengo il parare co'l fil dritto della spada migliore,
+et più sicuro.
+
+**Lep.** Io teneva, che la spada havesse maggior forza dal mezzo innanzi, che
+dal mezzo indietro.
+
+**Gio.** Nel ferire hà maggior forza: ma nel parare nò.
+
+*Lep.** Dapoi che mi havete dichiarato questo; vi prego à ragionare ancora della
+guardia d'alicorno co'l pie destro innanzi: la quale bramo sapere, per
+esser'ancor essa & pregiata, & usata molto.
+
 ###### Guardia d'alicorno. {#alicorno}
 
+**Gio.** Nè ragionerò volentieri. Dicovi adunque m che se vi trovaste in detta
+guardia, e il nimico vi tirasse un fendente per testa, voi potete tirare il pie
+manco appresso al dritto, & andare con la spada in guardia di testa à
+schermirvi, & subito crescere innanzi del pie destro, & volgerli per testa un
+mandritto di nodo di mano, ò spingerli una imbroccata per il petto. Potete
+ancora nel parare in guardia di testa; far vista di darli d'un dritto tramazzone
+dalle parti di sopra, & tutto à un tempo volgerli di riverso per coscia, insieme
+con un riverso ridoppio: co'l quale ritornerete alla detta guardia. Ma quando
+egli vi volesse ferire pur per testa di mandritto sgualimbro, ò tondo; volgerete
+le parti sinistre di dietro alle destre, & vi schermirete con la spada in
+guardia di testa, chinando alquanto la punta verso terra: & subito li volgerete
+per testa due dritti tramazzoni, ò li caccierete la punta nel petto. Si può in
+oltre parare in guardia di faccia, & nel medesimo tempo spingerli la punta nel
+volto: overo pararla con mezzo mandritto sgualimbro, & subito risponderli, ò di
+punta riversa, ò di riverso tondo: & ciò fatto ritornare alla vostra guardia. Ma
+se per caso egli vi tirasse di mandritto, ò di riverso per gamba; tirarete il pie destro alquanto indietro, spingendoli un'imbroccata per il petto;: ò vero li volgerete d'un mandritto per il braccio destro. Ma s'egli vi tirasse di riverso per testa, lo pararete con la spada nella medesima guardia, e in un tempo li spingerete la punta per li fianchi; il che fatto con un riverso di sotto in sù; ritornarete nella guardia sopradetta. Ma quando egli vi spingesse di una punta sopramano; potete passare del pie dritto verso le sue parti manche, facendo che'l pie sinistro lo seguiti, & parare con un mandritto sgualimbro, & subito segarli di riverso per testa, ò spingerli nel petto una punta riversa. Oltra di ciò  vi sarà buono alla detta imbroccata tirare il pie destro appresso al sinistro, & urtarla in fuori con un riverso ridoppio, & subito crescere del destro innanzi, e spingerli una punta per faccia: ò vero vi potete difendere, gittando il pie dritto indietro un passo, & nel medesimo tempo dandoli d'un mandritto sgualimbro per la man della spada, il quale anderà in cinghiale porta di ferro: & ciò fatto, tornerete incontinente alla guardia di cui si ragiona. Ma s'egli vi tirasse d'una stoccata per darvi nel petto, passarete del pie destro verso le parti sinistre del nimico, e in tal tempo la smaccarete con un mandritto, & subito lo ferirete, ò di taglio, ò di punta, secondo che vi tornerà bene. Potete anco alla detta punta passare del pie manco verso le sue parti dritte, & urtarla in fuori con la man manca: indi tutto à un tempo volgerli d'un riverso per testa, ò spingerli la punta per il volto, & ciò fatto ridurvi in detta guardia d'alicorno: della quale vi basterà quanto fin quì ve n'ho dichiarato.
 
+**Lep. Come dell'altre, così di questa ancora da voi resto soddisfatto, & con assai maggior facilità ch'io non pensava, essendo ella massimamente tenuta molto difficile da imparare. Ma l'ordine che in essa si vede, ne farebbe ciascuno facilmente capace.
+
+**Gio.** Vedete dunque, come s'ingannino quelli che dicono, che la Theorica non serve all'arte dello schermire: a' quali si può rispondere, che se essi non camineranno per questa via; non la potranno giammai insegnare perfettamente, essendo che questa è quella che dimostra i principij, le cause, gli effetti, & finalmente insegna con ragione, & con facilità l'ordine, & il modo, che si debbe tenere ad impararla compitamente. Ma perché hò sempre ragionato d'una sol guardia per volta, hor ne voglio ragionare di tutte insieme; cioè quando di una, & quando di un'altra, secondo che in esse vi trovarete: perché non si potrebbe star sempre fermo in una se non difficilmente. 
+
+**Lep.** Per che ragione??
 
