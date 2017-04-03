@@ -493,11 +493,59 @@ per testa due dritti tramazzoni, ò li caccierete la punta nel petto. Si può in
 oltre parare in guardia di faccia, & nel medesimo tempo spingerli la punta nel
 volto: overo pararla con mezzo mandritto sgualimbro, & subito risponderli, ò di
 punta riversa, ò di riverso tondo: & ciò fatto ritornare alla vostra guardia. Ma
-se per caso egli vi tirasse di mandritto, ò di riverso per gamba; tirarete il pie destro alquanto indietro, spingendoli un'imbroccata per il petto;: ò vero li volgerete d'un mandritto per il braccio destro. Ma s'egli vi tirasse di riverso per testa, lo pararete con la spada nella medesima guardia, e in un tempo li spingerete la punta per li fianchi; il che fatto con un riverso di sotto in sù; ritornarete nella guardia sopradetta. Ma quando egli vi spingesse di una punta sopramano; potete passare del pie dritto verso le sue parti manche, facendo che'l pie sinistro lo seguiti, & parare con un mandritto sgualimbro, & subito segarli di riverso per testa, ò spingerli nel petto una punta riversa. Oltra di ciò  vi sarà buono alla detta imbroccata tirare il pie destro appresso al sinistro, & urtarla in fuori con un riverso ridoppio, & subito crescere del destro innanzi, e spingerli una punta per faccia: ò vero vi potete difendere, gittando il pie dritto indietro un passo, & nel medesimo tempo dandoli d'un mandritto sgualimbro per la man della spada, il quale anderà in cinghiale porta di ferro: & ciò fatto, tornerete incontinente alla guardia di cui si ragiona. Ma s'egli vi tirasse d'una stoccata per darvi nel petto, passarete del pie destro verso le parti sinistre del nimico, e in tal tempo la smaccarete con un mandritto, & subito lo ferirete, ò di taglio, ò di punta, secondo che vi tornerà bene. Potete anco alla detta punta passare del pie manco verso le sue parti dritte, & urtarla in fuori con la man manca: indi tutto à un tempo volgerli d'un riverso per testa, ò spingerli la punta per il volto, & ciò fatto ridurvi in detta guardia d'alicorno: della quale vi basterà quanto fin quì ve n'ho dichiarato.
+se per caso egli vi tirasse di mandritto, ò di riverso per gamba; tirarete il
+pie destro alquanto indietro, spingendoli un'imbroccata per il petto;: ò vero li
+volgerete d'un mandritto per il braccio destro. Ma s'egli vi tirasse di riverso
+per testa, lo pararete con la spada nella medesima guardia, e in un tempo li
+spingerete la punta per li fianchi; il che fatto con un riverso di sotto in sù;
+ritornarete nella guardia sopradetta. Ma quando egli vi spingesse di una punta
+sopramano; potete passare del pie dritto verso le sue parti manche, facendo
+che'l pie sinistro lo seguiti, & parare con un mandritto sgualimbro, & subito
+segarli di riverso per testa, ò spingerli nel petto una punta riversa. Oltra di
+ciò  vi sarà buono alla detta imbroccata tirare il pie destro appresso al
+sinistro, & urtarla in fuori con un riverso ridoppio, & subito crescere del
+destro innanzi, e spingerli una punta per faccia: ò vero vi potete difendere,
+gittando il pie dritto indietro un passo, & nel medesimo tempo dandoli d'un
+mandritto sgualimbro per la man della spada, il quale anderà in cinghiale porta
+di ferro: & ciò fatto, tornerete incontinente alla guardia di cui si ragiona.
+Ma s'egli vi tirasse d'una stoccata per darvi nel petto, passarete del pie
+destro verso le parti sinistre del nimico, e in tal tempo la smaccarete con un
+mandritto, & subito lo ferirete, ò di taglio, ò di punta, secondo che vi tornerà
+bene. Potete anco alla detta punta passare del pie manco verso le sue parti
+dritte, & urtarla in fuori con la man manca: indi tutto à un tempo volgerli d'un
+riverso per testa, ò spingerli la punta per il volto, & ciò fatto ridurvi in
+detta guardia d'alicorno: della quale vi basterà quanto fin quì ve n'ho
+dichiarato.
 
-**Lep. Come dell'altre, così di questa ancora da voi resto soddisfatto, & con assai maggior facilità ch'io non pensava, essendo ella massimamente tenuta molto difficile da imparare. Ma l'ordine che in essa si vede, ne farebbe ciascuno facilmente capace.
+**Lep. Come dell'altre, così di questa ancora da voi resto soddisfatto, & con
+assai maggior facilità ch'io non pensava, essendo ella massimamente tenuta molto
+difficile da imparare. Ma l'ordine che in essa si vede, ne farebbe ciascuno
+facilmente capace.
 
-**Gio.** Vedete dunque, come s'ingannino quelli che dicono, che la Theorica non serve all'arte dello schermire: a' quali si può rispondere, che se essi non camineranno per questa via; non la potranno giammai insegnare perfettamente, essendo che questa è quella che dimostra i principij, le cause, gli effetti, & finalmente insegna con ragione, & con facilità l'ordine, & il modo, che si debbe tenere ad impararla compitamente. Ma perché hò sempre ragionato d'una sol guardia per volta, hor ne voglio ragionare di tutte insieme; cioè quando di una, & quando di un'altra, secondo che in esse vi trovarete: perché non si potrebbe star sempre fermo in una se non difficilmente. 
+**Gio.** Vedete dunque, come s'ingannino quelli che dicono, che la Theorica non
+serve all'arte dello schermire: a' quali si può rispondere, che se essi non
+camineranno per questa via; non la potranno giammai insegnare perfettamente,
+essendo che questa è quella che dimostra i principij, le cause, gli effetti, &
+finalmente insegna con ragione, & con facilità l'ordine, & il modo, che si debbe
+tenere ad impararla compitamente. Ma perché hò sempre ragionato d'una sol
+guardia per volta, hor ne voglio ragionare di tutte insieme; cioè quando di una,
+& quando di un'altra, secondo che in esse vi trovarete: perché non si potrebbe
+star sempre fermo in una se non difficilmente. 
 
 **Lep.** Per che ragione??
 
+**Gio.** Per la variatione del ferire, dal quale non si può tirare alcun colpo,
+che ragionevolmente in qualche guardia non riesca, come avviene de mandritti
+insieme con l'imbroccata: i quali si fermano in porta di ferro, o in cinghiale
+porta di ferro. I riversi poi finiscono in coda lunga, hor co'l pie destro
+innanzi, & hor co'l sinistro. La stoccata& ancor la punta riversa può fermarsi,
+si nell'una come nell'altra guardia: nondimeno il dritto della punta riversa, è
+finire in coda lunga stretta, & la stoccata in porta di ferro: & di quì nasce la
+difficoltà. Ma oltra di questo lo faccio ancora, acciò che vi facciate in esse
+maggiormente prattico. 
+
+**Lep.** Vi ringratio, & me ne fate piacere; perché questo è il desiderio mio.
+
+**Gio.** Porremo adunque caso, che voi foste agiato con la spada in coda lunga stretta, & che'l vostro nimico vi tirasse d'un mandritto per testa; andarete a prarlo in guardia di faccia, crescendo innanzi del piedritto, & tutto à un tempo li spingerete la punta nel volto: indi subito tornerete del pie dritto indietro un passo, accompagnato da un riverso sgualimbro: col quale vi fermerete in coda lunga alta. Hor se sarete in detta guardia, & ch'egli vi spingesse una punta sopramano; passarete co'l pie destro innanzi, facendo che'l sinistro lo seguiti, & la parerete con un mandritto sgualimbro, & tutto à un tempo li volgerete un riverso tondo per faccia, seguito da un'altro riverso, co'l quale andarete in coda lunga stretta. Ma se'l nimico vi rispondesse di mandritto per gamba, vi schermirete co'l falso della spada, & nel medesimo tempo gli volgerete per testa due dritti tramazzoni, facendo, che l'ultimo cali in porta di ferro stretta. Ma se sarete in detta guardia, & egli vi volgesse d'un riverso dalle parti di sopra; lo pararete con un riverso sgualimbro, passando in quel tempo del pie manco verso le sue destre parti, & crescendo subito del dritto, lo ferirete d'una imbroccata nel volto, accompagnandola con un dritto tramazzone co'l quale andarete in porta di ferro alta. Et s'egli vi tirasse una stoccata per faccia, crescerete del pie destro innanzi, & con la spada andarete in guardia d'entrare, accompagnando tutto à un tempo il vostro fil dritto sopra la spada del nimico, spingendoli la punta nel petto: il che fatto trarrete il pie dritto indietro un passo, insieme con un dritto tramazzone, co'l quale vi fermarete in cinghial porta di ferro. Hora se vi ritroverete in detta guardia, et ch'egli vi rispondesse di mandritto, ò di riverso, ò di punta; à ciascuno di questi colpi, potete urtare del vostro fil dritto contra la spada del nimico, & quindi subito passare innanzi del pie destro, et cacciarli un'imbroccata per il petto accompagnata da un dritto tramazzone, co'l quale vi assetterete in porta di ferro larga. Ma se per caso egli vi spingesse per faccia una punta riversa, per darvi per testa d'un mandritto tondo, urtarete la detta punta co'l falso. Et quando egli volgerà il mandritto; voi subito andarete con la spada in guardia di faccia, spingendoli in quel tempo la punta nel volto, & per vostro schermo tornarete del pie dritto indietro un passo insieme con un riverso tramazzone, co'l quale andarete in coda lunga alta. Et essendo in detta guardia, & ch'egli vi volesse ferire d'un fendente per testa; passarete innanzi del pie drittom, alzando la spada à una guardia di testa, et  quivi da esso vi schermirete: ma tutto à un tempo li gittarete la man manca alla sua spada per sotto la vostra, facendogli presa, & dandogli subito d'un mandritto per testa, ò per gamba, come volete: il che fatto ritornarete in coda lunga stretta: & questa è la maniera, che dovete tenere nel vanare le guardie, delle quali molte altre cose dir vi potrei; ma perché habbiamo ragionato à bastanza, è ben che ci leviamo di qua, & che vi ritorniamo domani, per ragionare di quanto vi sarà grato.
+
+**Lep.** Io mi riporto à voi, in questo & in ogni altra cosa.
