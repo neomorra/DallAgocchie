@@ -382,7 +382,30 @@ può similmente difenderla con un riverso sgualimbro, crescendo alquanto del pie
 manco verso le parti dritte del nimico: indi scorrere del destro innanzi, &
 ferirlo d'un riverso per coscia, ò vero dopo che haverete parato, potrete
 spingerli un'imbroccata per fianco, con la quale vi fermerete nella predetta
-guardia. Potete ancora
+guardia. Potete ancora alla detta stoccata andare in guardia d'entrare, ponendo
+il forte del vostro fil dritto sopra la spada del nimico, spingendoli la punta
+nel petto, ò vero come egli tirerà la detta stoccata, potete ritornare del pie
+dritto indietro un passo, e in tal tempo volgerli un dritto tramazzone per il
+braccio della spada, il quale calerà in cinghiale porta di ferro: indi subito
+passare del destro piede innanzi insieme con un mandritto di nodo di mano, co'l
+quale vi assetterete nella detta guardia. Et questi sono i modi che dovete
+tenere nello schermirvi da tutti i colpi del nimico, et offendere lui, essendo
+fermo in porta di ferro stretta.
+
+**Lep.** Hor ditemi, quando io fossi in porta di ferro larga, ò vero in porta di
+ferro alta, si potrebbono fare i medesimi schermi?
+
+**Gio.** Quasi tutti fare si potrebbono: perciochjé queste tre guardie son d'una
+medesima natura, & vi è ancora poca differenza \(come vi dissi\) dall'una e
+dall'altra. Et acciò che sappiate, le guardie larghe servono nel giuoco largo, &
+le strette nello stretto. Mà per far ritorno al ragionamento di esse, vi dico,
+che quando vi ritroverete in cinghiale porta di ferro, contra il vostro
+avversario, & che egli vi volesse ferire di mandritto per testa; potete passare
+del destro piede innanzi, & parare in guardia di testa, & subito volgerli due
+dritti tramazzoni dalle parti di sopra, ò spingerli un'imbroccata per il petto,
+facendo che la gamba sinistra seguiti la destra per di dietro, & subito
+ritornare il pie dritto indietro un passo insieme con un dritto tramazzone, co'l
+quale vi fermerete alla detta guardia. 
 
 ###### Schermo più sicuro qual è. {#schermo_sicuro}
 
