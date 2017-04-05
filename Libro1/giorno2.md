@@ -517,7 +517,7 @@ riverso per testa, ò spingerli la punta per il volto, & ciò fatto ridurvi in
 detta guardia d'alicorno: della quale vi basterà quanto fin quì ve n'ho
 dichiarato.
 
-**Lep. Come dell'altre, così di questa ancora da voi resto soddisfatto, & con
+**Lep.** Come dell'altre, così di questa ancora da voi resto soddisfatto, & con
 assai maggior facilità ch'io non pensava, essendo ella massimamente tenuta molto
 difficile da imparare. Ma l'ordine che in essa si vede, ne farebbe ciascuno
 facilmente capace.
