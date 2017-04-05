@@ -546,6 +546,45 @@ maggiormente prattico.
 
 **Lep.** Vi ringratio, & me ne fate piacere; perché questo è il desiderio mio.
 
-**Gio.** Porremo adunque caso, che voi foste agiato con la spada in coda lunga stretta, & che'l vostro nimico vi tirasse d'un mandritto per testa; andarete a prarlo in guardia di faccia, crescendo innanzi del piedritto, & tutto à un tempo li spingerete la punta nel volto: indi subito tornerete del pie dritto indietro un passo, accompagnato da un riverso sgualimbro: col quale vi fermerete in coda lunga alta. Hor se sarete in detta guardia, & ch'egli vi spingesse una punta sopramano; passarete co'l pie destro innanzi, facendo che'l sinistro lo seguiti, & la parerete con un mandritto sgualimbro, & tutto à un tempo li volgerete un riverso tondo per faccia, seguito da un'altro riverso, co'l quale andarete in coda lunga stretta. Ma se'l nimico vi rispondesse di mandritto per gamba, vi schermirete co'l falso della spada, & nel medesimo tempo gli volgerete per testa due dritti tramazzoni, facendo, che l'ultimo cali in porta di ferro stretta. Ma se sarete in detta guardia, & egli vi volgesse d'un riverso dalle parti di sopra; lo pararete con un riverso sgualimbro, passando in quel tempo del pie manco verso le sue destre parti, & crescendo subito del dritto, lo ferirete d'una imbroccata nel volto, accompagnandola con un dritto tramazzone co'l quale andarete in porta di ferro alta. Et s'egli vi tirasse una stoccata per faccia, crescerete del pie destro innanzi, & con la spada andarete in guardia d'entrare, accompagnando tutto à un tempo il vostro fil dritto sopra la spada del nimico, spingendoli la punta nel petto: il che fatto trarrete il pie dritto indietro un passo, insieme con un dritto tramazzone, co'l quale vi fermarete in cinghial porta di ferro. Hora se vi ritroverete in detta guardia, et ch'egli vi rispondesse di mandritto, ò di riverso, ò di punta; à ciascuno di questi colpi, potete urtare del vostro fil dritto contra la spada del nimico, & quindi subito passare innanzi del pie destro, et cacciarli un'imbroccata per il petto accompagnata da un dritto tramazzone, co'l quale vi assetterete in porta di ferro larga. Ma se per caso egli vi spingesse per faccia una punta riversa, per darvi per testa d'un mandritto tondo, urtarete la detta punta co'l falso. Et quando egli volgerà il mandritto; voi subito andarete con la spada in guardia di faccia, spingendoli in quel tempo la punta nel volto, & per vostro schermo tornarete del pie dritto indietro un passo insieme con un riverso tramazzone, co'l quale andarete in coda lunga alta. Et essendo in detta guardia, & ch'egli vi volesse ferire d'un fendente per testa; passarete innanzi del pie drittom, alzando la spada à una guardia di testa, et  quivi da esso vi schermirete: ma tutto à un tempo li gittarete la man manca alla sua spada per sotto la vostra, facendogli presa, & dandogli subito d'un mandritto per testa, ò per gamba, come volete: il che fatto ritornarete in coda lunga stretta: & questa è la maniera, che dovete tenere nel vanare le guardie, delle quali molte altre cose dir vi potrei; ma perché habbiamo ragionato à bastanza, è ben che ci leviamo di qua, & che vi ritorniamo domani, per ragionare di quanto vi sarà grato.
+**Gio.** Porremo adunque caso, che voi foste agiato con la spada in coda lunga
+stretta, & che'l vostro nimico vi tirasse d'un mandritto per testa; andarete a
+pararlo in guardia di faccia, crescendo innanzi del pie dritto, & tutto à un
+tempo li spingerete la punta nel volto: indi subito tornerete del pie dritto
+indietro un passo, accompagnato da un riverso sgualimbro: col quale vi fermerete
+in coda lunga alta. Hor se sarete in detta guardia, & ch'egli vi spingesse una
+punta sopramano; passarete co'l pie destro innanzi, facendo che'l sinistro lo
+seguiti, & la parerete con un mandritto sgualimbro, & tutto à un tempo li
+volgerete un riverso tondo per faccia, seguito da un'altro riverso, co'l quale
+andarete in coda lunga stretta. Ma se'l nimico vi rispondesse di mandritto per
+gamba, vi schermirete co'l falso della spada, & nel medesimo tempo gli volgerete
+per testa due dritti tramazzoni, facendo, che l'ultimo cali in porta di ferro
+stretta. Ma se sarete in detta guardia, & egli vi volgesse d'un riverso dalle
+parti di sopra; lo pararete con un riverso sgualimbro, passando in quel tempo
+del pie manco verso le sue destre parti, & crescendo subito del dritto, lo
+ferirete d'una imbroccata nel volto, accompagnandola con un dritto tramazzone
+co'l quale andarete in porta di ferro alta. Et s'egli vi tirasse una stoccata
+per faccia, crescerete del pie destro innanzi, & con la spada andarete in
+guardia d'entrare, accompagnando tutto à un tempo il vostro fil dritto sopra la
+spada del nimico, spingendoli la punta nel petto: il che fatto trarrete il pie
+dritto indietro un passo, insieme con un dritto tramazzone, co'l quale vi
+fermarete in cinghial porta di ferro. Hora se vi ritroverete in detta guardia,
+et ch'egli vi rispondesse di mandritto, ò di riverso, ò di punta; à ciascuno di
+questi colpi, potete urtare del vostro fil dritto contra la spada del nimico, &
+quindi subito passare innanzi del pie destro, et cacciarli un'imbroccata per il
+petto accompagnata da un dritto tramazzone, co'l quale vi assetterete in porta
+di ferro larga. Ma se per caso egli vi spingesse per faccia una punta riversa,
+per darvi per testa d'un mandritto tondo, urtarete la detta punta co'l falso. Et
+quando egli volgerà il mandritto; voi subito andarete con la spada in guardia di
+faccia, spingendoli in quel tempo la punta nel volto, & per vostro schermo
+tornarete del pie dritto indietro un passo insieme con un riverso tramazzone,
+co'l quale andarete in coda lunga alta. Et essendo in detta guardia, & ch'egli
+vi volesse ferire d'un fendente per testa; passarete innanzi del pie dritto,
+alzando la spada à una guardia di testa, et quivi da esso vi schermirete: ma
+tutto à un tempo li gittarete la man manca alla sua spada per sotto la vostra,
+facendogli presa, & dandogli subito d'un mandritto per testa, ò per gamba, come
+volete: il che fatto ritornarete in coda lunga stretta: & questa è la maniera,
+che dovete tenere nel vanare le guardie, delle quali molte altre cose dir vi
+potrei; ma perché habbiamo ragionato à bastanza, è ben che ci leviamo di qua, &
+che vi ritorniamo domani, per ragionare di quanto vi sarà grato.
 
 **Lep.** Io mi riporto à voi, in questo & in ogni altra cosa.
