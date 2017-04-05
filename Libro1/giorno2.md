@@ -472,7 +472,7 @@ dal mezzo indietro.
 
 **Gio.** Nel ferire hà maggior forza: ma nel parare nò.
 
-*Lep.** Dapoi che mi havete dichiarato questo; vi prego à ragionare ancora della
+**Lep.** Dapoi che mi havete dichiarato questo; vi prego à ragionare ancora della
 guardia d'alicorno co'l pie destro innanzi: la quale bramo sapere, per
 esser'ancor essa & pregiata, & usata molto.
 
