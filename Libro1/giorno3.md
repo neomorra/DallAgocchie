@@ -170,7 +170,9 @@ testa un mandritto tondo: ò vero dopo c'haverete spinto la detta punta, potete
 passare pur del destro innanzi, e spingerli un'alra punta nel petto: & per vostro
 schermo farete un riverso tramazzone, per la mano della sua spada, gittando in
 quel tempo il pie destro di dietro al sinistro, & la spada resterà in coda lunga
-alta. Voi potreste etiamdio andare del pie dritto innanzi, & nel medesimo tempo
+alta.
+
+Voi potreste etiamdio andare del pie dritto innanzi, & nel medesimo tempo
 porre il fil dritto della vostra spada sopra quella del nimico, e spingerli la
 punta nel petto: et dopo questo ridurvi all'usata guardia. Et queste sono le
 provocationi, che si ponno fare, essendo in porta di ferro stretta.
@@ -211,12 +213,11 @@ darete di mezzo mandritto nella man della spada.
 Se poi egli spingesse la punta per darvi del riverso ridoppio; voi la pararete
 co'l fil dritto, & come egli volgerà il ridoppio, guidarete il pie destro verso
 le sue parti manche, volgendoli in quel tempo un riverso sgualimbro: il quale
-anderà in coda lunga stretta.
-
-Ma se pure egli tirerà le due punte: nello spingere la prima l'urtarete co'l
-falso; ma nel passare, ch'egli farà del pie destro per darvi la seconda; voi con
-mezzo mandritto la pararete, ferendogli il petto d'una punta riversa, seguita da
-un riverso sgualimbro, co'l quale vi fermerete in coda lunga stretta.
+anderà in coda lunga stretta.Ma se pure egli tirerà le due punte: nello spingere
+la prima l'urtarete co'l falso; ma nel passare, ch'egli farà del pie destro per
+darvi la seconda; voi con mezzo mandritto la pararete, ferendogli il petto d'una
+punta riversa, seguita da un riverso sgualimbro, co'l quale vi fermerete in coda
+lunga stretta.
 
 Ma s'egli ponesse il fil dritto della sua spada sopra la vostra per ferirvi nel
 petto: voi subito volgerete le parti manche di dietro alle dritte, tirando in
@@ -227,11 +228,72 @@ spada per sotto la sua, & spingerli la punta per il petto. Et questi sono i
 contrarij che si possono fare, essendo nella sopradetta guardia di porta di
 ferro stretta.
 
+**Lep.** Mi par che questi contrarij siano quasi tutti fondati nel ritornare un
+passo indietro.
 
+**Gio.** Non vi è dubbio in questo: anzi voglio che sappiate, che ogni volta
+che'l nimico urtasse nella vostra spada, ò co'l fil dritto, ò co'l falso, per
+disconciarvi di guardia, acciò che egli più sicuramente vi potesse offendere, il
+suo contrario è, che quando egli urterà la detta spada verso le vostre destre
+parti; voi subito volgerete un riverso tramazzone, ritornando in quel tempo del
+piede che sarà innanzi indietro, ò per traverso. Ma quando egli la urtasse verso
+le vostre parti sinistre, & voi tosto volgerete un dritto tramazzone, pur
+trahendo il piede, che sarà dinanzi indietro un passo: perché ciò facendo
+verrete a interrompere il suo disegno.
+
+**Lep.** Hora conosco, che molti s'ingannano: i quali dicono che il trarre
+indietro il passo è di gran vergogna: anzi per quel ch'io odo è tutto il
+contrario, cioè, che questo altro non è, che una mutatione di guardia: la quale
+è schermo sicurissimo, & molto necessario.
+
+**Gio.** Anzi se ciò non fosse, quest'arte sarebbe imperfetta: perciò che vi
+sono assai colpi, che non si potrebbono parare, se non si potesse ritornare
+indietro un passo.
 
 ###### Provocationi in Cinghiale porta di ferro. {#chinghiale_pdf}
 
+Ma lasciamogli pure stare nella loro opinione, & seguiamo il ragionamento del
+provocare il nimico, quando si trovasse fermo in cinghiale porta di ferro, & che
+voi similmente trovandovi in detta guardia voleste esser il primo a provocarlo;
+dico, che potete spingerli una punta per faccia, passando del pie destro
+innanzi, & volgerli per testa un mandritto tondo: ò vero dopo che haverete
+spinto la detta punta; li volgerete un dritto tramazzone.
+
+Voi potete ancora nel crescere del piede spingerli per il volto una punta
+riversa: & come egli alzasse la spada per schermirla; voi subito passerete co'l
+sinistro piede verso le sue dritte parti, spingendogli una imbroccata per
+fianco, seguita da un dritto tramazzone: col quale vi fermerete in cinghiale
+porta di ferro: & questa è la maniera di provocare il nimico essendo in detta
+guardia.
+
+Hora i suoi contrarij saranno, che come il nimico spingerà la punta co'l pie
+destro innanzi, voi la schiferete co'l falso. Ma quando egli vorrà ferirvi del
+mandritto tondo, ò tramazzone; subito andarete con la spada in guardia di
+faccia, spingendoli la punta nel volto: ò vero gitterete il pie sinistro dietro
+al destro, offendendogli il braccio della spada d'un mezzo mandritto.
+
+Ma quando egli spingesse la punta per ferirvi poi dell'imbroccata per fianco;
+potete passare del pie dritto innanzi, & urtarla co'l fil dritto della spada; ma
+nel passare ch'egli farà per spingere l'imbroccata per fianco: la parerete con
+un riverso ridoppio, & subito lo ferirete nel petto d'una punta sopramano, & per
+vostro riparo volgerete un riverso sgualimbro, trahendo in dietro il pie destro,
+& la spada si fermerà in coda lunga alta.
+
+Et questi sono i contrarij alle dette provocationi di cinghiale porta di ferro.
+
+**Lep.** Questi contrarij mi sono stati carissimi; ma perché havete fatto molte
+volte mentione de' mezzi mandritti, volentieri saprei, perché si fanno, & perché
+così si chiamano, & poi seguirete il ragionare delle provocationi, che fa si
+possono nell'altra guardia.
+
 ###### Mezi mandritti, perché si fanno, & così si chiamano {#mezzi_mandritti}
+
+**Gio.** Vi dirò. Voi sapete che'l mandritto sgualimbro principia dalla spalla
+manca, & finisce al ginocchio destro del nimico, & per questo fu nominato colpo
+finito. Il mezzo mandritto è della medesima natura: nondimeno per non esser
+colpo finito, & per esser ancor di manco tempo, vien detto mezzo mandritto: il
+qual si fa il più delle volte quando si trova appresso al nimico per maggior
+sicurezza.
 
 ###### Provocationi in guardia d'alicorno. {#alicorno}
 
