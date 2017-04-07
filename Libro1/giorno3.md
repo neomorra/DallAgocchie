@@ -120,7 +120,11 @@ nel provocare il nimico.
 
 Hor veniamo alle provocationi della seconda guardia, che sarà coda lunga alta.
 In questo ritrovandovi amendue fermi, & volendo voi esser'il primo a provocare
-il nimico, 
+il nimico; potete passare del pie dritto innanzi, & fare falso & mandritto
+contra la sua spada, ò vero fato che haverete il falso, farete finta di
+volgerli per testa un dritto tramazzone; ma però li volgerete un riverso per
+coscia. Potete ancora scorrere del pie destro innanzi, spingendoli una stoccata
+per faccia, seguita da un mandritto per testa, ò per gamba come volete.
 
 ###### Provocationi in porta di ferro stretta. {#porta_di_ferro_stretta}
 
