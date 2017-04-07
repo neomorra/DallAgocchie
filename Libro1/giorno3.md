@@ -119,6 +119,8 @@ nel provocare il nimico.
 ###### Provocationi in coda lunga alta. {#coda_longa_alta}
 
 Hor veniamo alle provocationi della seconda guardia, che sarà coda lunga alta.
+In questo ritrovandovi amendue fermi, & volendo voi esser'il primo a provocare
+il nimico, 
 
 ###### Provocationi in porta di ferro stretta. {#porta_di_ferro_stretta}
 
