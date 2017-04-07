@@ -110,7 +110,7 @@ detto la maniera, c'hò da tenere nel provocare il nimico, & poi i suoi
 contrarij; vorrei anco sapere, come si possono fare queste provocationi, che
 siano sicure?
 
-*Gio.** Vi dirò: ancor ch'io v'habbia detto i suoi contrarij, non resta per
+**Gio.** Vi dirò: ancor ch'io v'habbia detto i suoi contrarij, non resta per
 questo, che non si possano fare sicuramente: perché ogni volta, che voi haverete
 il giudicio, le farete sicure; & questo l'acquisterete essercitandovi assai, &
 con diversi; percioché da questa varietà verrete à farvi giudicioso, & accorto

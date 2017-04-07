@@ -149,7 +149,7 @@ dritto innanzi, tirandogli per testa un mandritto sgualimbro, accompagnato da un
 riverso, co'l quale ritornerete nella detta guardia: overo quando haverete
 parato il detto colpo in guardia di testa; potrete ferire di due dritti
 tramazzoni, ò spingerli un'imbroccata nel petto accompagnata da un dritto
-tramazzone. Potrete ancora passare del detro piede verso le parti manche del
+tramazzone. Potrete ancora passare del destro piede verso le parti manche del
 nimico, & pararlo con mezzo mandritto, & subito volgerli un riverso per faccia
 da un'altro riverso seguitato: ò vero spingerli una punta riversa per il petto,
 insieme con un riverso tramazzone, il quale si fermerà nella predetta guardia.
