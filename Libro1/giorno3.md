@@ -124,9 +124,110 @@ il nimico; potete passare del pie dritto innanzi, & fare falso & mandritto
 contra la sua spada, ò vero fato che haverete il falso, farete finta di
 volgerli per testa un dritto tramazzone; ma però li volgerete un riverso per
 coscia. Potete ancora scorrere del pie destro innanzi, spingendoli una stoccata
-per faccia, seguita da un mandritto per testa, ò per gamba come volete.
+per faccia, seguita da un mandritto per testa, ò per gamba come volete. In oltre
+potete nel passare del destro piede innanzi, spingerli per fianco una punta
+sopramano, volgendo in quel tempo le parti manche di dietro alle dritte, & per
+vostro schermo tirarete il pie destro dietro al sinistro, insieme con un riverso
+sgualimbro, co'l quale ritornerete in coda lunga alta: & questa è la seconda
+maniera di provocare il nimico essendo nella detta guardia. I suoi contrarij
+sono, che quando egli passerà innanzi del pie destro, & farà falso, & mandritto,
+voi subito vi muterete di passo, volgendo in quel tempo la spada co'l fil dritto
+all'insù, fermandovi in guardia d'alicorno. Ma quando egli urterà del falso, &
+farà la vista per volervi ferire del riverso, nell'urtare ch'egli farà del
+falso: volgerete un riverso tramazzone, trahendo il pie manco all'indietro, & la
+spada resterà in coda lunga stretta. Ma come egli spingerà la punta co'l pie
+dritto innanzi, per darvi del mandritto per testa, voi senza mover piedi, la
+pararete co'l fil dritto della spada: & come egli volgerà il mandritto per
+testa; voi subito passarete innanzi del pie destro, et andarete con la spada in
+guardia di faccia a schermirvi, spingendogli tutto a un tempo la punta nel
+volto. Ma se dopo la detta pinta egli volgesse il mandritto per gamba, tirerete
+il pie manco appresso al dritto, & nel medesimo tempo li caccierete per faccia
+una punta riversa. Ma quando egli passerà verso le vostre parti manche, e
+spingerà la punta, voi tosto li volgerete un riverso tramazzone per il braccio
+della spada , co'l qual vi fermerete in coda lunga stretta, & così haverete
+inteso i suoi contrarij.
+
+**Lep.** Gli hò intesi benissimo.
 
 ###### Provocationi in porta di ferro stretta. {#porta_di_ferro_stretta}
+
+**Gio.** Hor notate queste altre provocationi della terza guardia, la quale sarà
+porta di ferro stretta: nella quale essendo amendue fermi, & volendo voi esser
+il primo à provocare il nimico; potete urtare d'un falso manco nella sua spada,
+facendo che'l pie manco spinga il dritto innanzi, & subito segarli di mandritto
+per lo braccio destro, & la spada ritornerà nella detta guardia.
+
+Potete anco percotergli la spada con un riverso ridoppio, facendo che'l pie
+sinistro segua il destro, & la spada calerà alla guardia sopradetta.
+
+Si può anco far vista di darli per testa d'un dritto tramazzone, & come egli
+alzerà la spada per difendersi, gli volgerete per coscia d'un riverso tondo.
+
+Voi potete appresso battere con mezzo riverso, la sua spada, & tutto a un tempo
+passare co'l pie sinistro innanzi, spingendoli per faccia una punta riversa: &
+quindi subito crescere del destro verso le sue sinistre parti, volgendogli per
+testa un mandritto tondo: ò vero dopo c'haverete spinto la detta punta, potete
+passare pur del destro innanzi, e spingerli un'alra punta nel petto: & per vostro
+schermo farete un riverso tramazzone, per la mano della sua spada, gittando in
+quel tempo il pie destro di dietro al sinistro, & la spada resterà in coda lunga
+alta. Voi potreste etiamdio andare del pie dritto innanzi, & nel medesimo tempo
+porre il fil dritto della vostra spada sopra quella del nimico, e spingerli la
+punta nel petto: et dopo questo ridurvi all'usata guardia. Et queste sono le
+provocationi, che si ponno fare, essendo in porta di ferro stretta.
+
+**Lep.** Fra tutte queste provocationi, delle quali havete ragionato; a me pare
+che sia poca differenza dall'una all'altra.
+
+**Gio.** E vero, che vi è poca differenza, perché all'ultimo tutti i colpi si
+risolvono in un taglio solo, & una punta: et la ragion'è, che ferendo, ò co'l
+fil dritto della spada, ò co'l falso, ò dal destro, ò dal sinistro lato, ò da
+alto, ò da basso, sempre sarà un taglio. Medesimamente, se ferirete
+d'imbroccata, ò di stoccata, ò di punta riversa, sempre sarà una punta: & però
+tutto si risolve in taglio, e in punta.
+
+Ma per seguir i contrarij della terza guardia; dico che quando il nimico urterà
+del falso nella vostra spada; voi subito volgerete un dritto tramazzone, tirando
+in quel tempo il pie destro indietro un passo, e la spada anderà in cinghiale
+porta di ferro: & con questo schermo haverete interrotto la sua intentione.
+
+Ma quando egli percoterà la vostra spada co'l riverso ridoppio per ferirvi poi
+di una punta sopramano nel percotervi la spada; voi passerete innanzi del pie
+manco: ma nello spingere la punta, la pararete con un riverso sgualimbro: il che
+fatto crescerete innanzi del pie dritto, cacciandogli una imbroccata per
+fianco: ò vero nel crescere del pie destro; accompagnerete il fil dritto della
+vostra spada sopra quella del nimico, spingendoli in quel tempo la punta nel
+volto.
+
+Ma s'egli farà vista di darvi del dritto tramazzone; voi andarete con la spada
+in guardia di faccia: & come egli tirerà il riverso per coscia, voi subito
+gittando il pie dritto di dietro al manco, li volgerete un riverso per il
+braccio.
+
+Ma quando egli battesse del riverso su la vostra spada: non farete movimento
+alcuno: ma nello spingere la punta riversa, voi co'l falso la schifarete: &
+s'egli volgesse il mandritto tondo, tirarete il pie destro all'indietro, & li
+darete di mezzo mandritto nella man della spada.
+
+Se poi egli spingesse la punta per darvi del riverso ridoppio; voi la pararete
+co'l fil dritto, & come egli volgerà il ridoppio, guidarete il pie destro verso
+le sue parti manche, volgendoli in quel tempo un riverso sgualimbro: il quale
+anderà in coda lunga stretta.
+
+Ma se pure egli tirerà le due punte: nello spingere la prima l'urtarete co'l
+falso; ma nel passare, ch'egli farà del pie destro per darvi la seconda; voi con
+mezzo mandritto la pararete, ferendogli il petto d'una punta riversa, seguita da
+un riverso sgualimbro, co'l quale vi fermerete in coda lunga stretta.
+
+Ma s'egli ponesse il fil dritto della sua spada sopra la vostra per ferirvi nel
+petto: voi subito volgerete le parti manche di dietro alle dritte, tirando in
+quel tempo un riverso di sotto in sù per il braccio, & la spada salirà in
+guardia d'alicorno. Potete ancora mentre ch'egli spingerà la detta punta,
+passare co'l pie destro per traverso, & nel medesimo tempo cavare la vostra
+spada per sotto la sua, & spingerli la punta per il petto. Et questi sono i
+contrarij che si possono fare, essendo nella sopradetta guardia di porta di
+ferro stretta.
+
+
 
 ###### Provocationi in Cinghiale porta di ferro. {#chinghiale_pdf}
 
