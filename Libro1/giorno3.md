@@ -297,6 +297,38 @@ sicurezza.
 
 ###### Provocationi in guardia d'alicorno. {#alicorno}
 
+Hor seguendo le provocationi della quinta, & ultima guardia, ch'è quella
+d'alicorno co'l pie destro innanzi; dico, che quando vi troverete fermo in
+questa guardia, & vorrete essere il provocatore, potete crescere del pie destro
+verso le sue parti manche, facendo che'l sinistro lo segua, e in quel tempo
+volgerli un mandritto sgualimbro nella spada, e subito segarli per faccia d'un
+riverso tondo, accompagnato da un riverso sgualimbro, co'l qual vi fermerete in
+coda lunga stretta: ò vero lo provocherete a rispondervi, se gli spingerete una
+punta sopramano, senza quasi movere pie di là: quale calerà in porta di ferro, &
+con queste provocationi lo farete tirare.
+
+**Lep.** Seguite i suoi contrarij.
+
+**Gio.** Come il nimico volgesse il mandritto nella vostra spada, gitterete il
+pie dritto di dietro al manco, volgendo in quel tempo un riverso tramazzone: il
+quale anderà in coda lunga alta.
+
+Ma quando egli spingesse la punta sopramano senza crescere del piede; voi potete
+far cenno di seguirlo con una imbroccata per il volto: et se per caso egli
+alzasse la spada per difendersi; voi subito abbasserete la punta della vostra
+spada per sotto quella del nimico, spingendoli tutto a un tempo la punta
+ne'fianchi: con la quale vi ridurrete in porta di ferro stretta: & con questo
+haverò dato fine alle provocationi, et a'lor contrarij delle sopra dette cinque
+guardie più necessarie.
+
+**Lep.** Hor ch'io hò inteso il modo, che tener si debbe nel provocare il nimico, & nel ferirlo ancora, insieme con suoi contrarij, ritrovandomi in qual si voglia guardia di sopra nominata; desidererei anco di sapere di queste guardie, qual teniate voi la migliore?
+
+**Gio.** Io le tengo tutte per buone e sicure: perché in esse è fondata quasi tutta l'arte dello schermo: & per questa cagione tutte s'insegnano: nondimeno quella sarà la migliore, nella quale più vi assuefarete, & farete maggior prattica.
+
+**Lep.** Questa prattica in che consiste?
+
+**Gio.** Nello essercitarsi assai, come vi dissi, & con diversi: precioché nel pratticare tanti varij ingegni, verrete à farvi giudicioso, accorto, & di buona esperienza. Però vi esorto a non fare come fanno molti, liquali come hanno imparato un mese, non si curano altrimenti di essercitarsi con alcuno: atteso che si pensano per essersi essercitati co'l Maestro, di saper'assai: & peggio è 
+
 ###### Tempo da ferire si conosce in cinque modi. {#tempi_ferire}
 
 ###### Strette di meza spada. {#strette_mezza}
