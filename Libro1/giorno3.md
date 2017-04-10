@@ -541,56 +541,185 @@ bisogna crescere del medesimo dritto, facendo però che'l manco lo segua; &
 questo è l'ordine che si debbe tenere nel movere i piedi.
 
 Ma per seguire il ragionare delle strette di mezza spada, ritrovandovi co'l
-vostro nimico a fil dritto con fil dritto, cioè che le spade co'l fil dritto si bascino insieme, & volendo voi esser'il primo a ferire; potete volgerli per testa un riverso tramazzone, passando in quel tempo del pie manco verso le sue parti dritte, & la spada calerà in coda lunga alta.
+vostro nimico a fil dritto con fil dritto, cioè che le spade co'l fil dritto si
+bascino insieme, & volendo voi esser'il primo a ferire; potete volgerli per
+testa un riverso tramazzone, passando in quel tempo del pie manco verso le sue
+parti dritte, & la spada calerà in coda lunga alta.
 
-Il contrario sarà. Che mentre il nimico passerà del pie manco per darvi del riverso, voi subito volgerete il fil dritto contra la sua spada, spingendogli la punta per il petto: ò vero guiderete il pie destro indietro un passom, volgendogli in quel tempo un riverso sgualimbro, co'l quale anderete in coda lunga alta.
+Il contrario sarà. Che mentre il nimico passerà del pie manco per darvi del
+riverso, voi subito volgerete il fil dritto contra la sua spada, spingendogli la
+punta per il petto: ò vero guiderete il pie destro indietro un passom,
+volgendogli in quel tempo un riverso sgualimbro, co'l quale anderete in coda
+lunga alta.
 
-Seconda stretta. Potete volgere il riverso della mano all'insù, facendo che la punta della vostra spada vada verso il volto del nimico: & come egli schiferà la punta; voi subito gli segherete d'un mandritto per il petto, che scorra all'ingià, seguitato da un riverso sgualimbro, co'l qual vi adatterete in conda lunga stretta.
+Seconda stretta. Potete volgere il riverso della mano all'insù, facendo che la
+punta della vostra spada vada verso il volto del nimico: & come egli schiferà la
+punta; voi subito gli segherete d'un mandritto per il petto, che scorra
+all'ingiù, seguitato da un riverso sgualimbro, co'l qual vi adatterete in conda
+lunga stretta.
 
-Il contrario di questa è. Quando il nimico vi volgerà la punta verso la faccia, per segarvi del mandritto, tirerete il pie destro indietro un passo, volgendogli tutto a un tempo un riverso sgualimbro: il quale si fermerà in coda lunga altra.
+Il contrario di questa è. Quando il nimico vi volgerà la punta verso la faccia,
+per segarvi del mandritto, tirerete il pie destro indietro un passo, volgendogli
+tutto a un tempo un riverso sgualimbro: il quale si fermerà in coda lunga altra.
 
-Terza. Potete fare vista di darli d'un riverso, & nondimeno gli volgerete per testa d'un mandritto tondo, & per vostro riparo tirerete il pie dritto indietro un passo, accompagnato da un dritto tramazzone: co'l quale vi fermerete in cinghiale porta di ferro.
+Terza. Potete fare vista di darli d'un riverso, & nondimeno gli volgerete per
+testa d'un mandritto tondo, & per vostro riparo tirerete il pie dritto indietro
+un passo, accompagnato da un dritto tramazzone: co'l quale vi fermerete in
+cinghiale porta di ferro.
 
-Il contrario della predetta è. Che come il nimico farà vista di volgervi il riverso; non vi movcerete; ma quando egli volgerà il mandritto, essendo voi in guardia di faccia, gli spingerete la punta nel volto: indi guidarete il pie destro indietro un passo insieme con un riverso sgualimbro, il quale anderà in coda lunga alta.
+Il contrario della predetta è. Che come il nimico farà vista di volgervi il
+riverso; non vi movcerete; ma quando egli volgerà il mandritto, essendo voi in
+guardia di faccia, gli spingerete la punta nel volto: indi guidarete il pie
+destro indietro un passo insieme con un riverso sgualimbro, il quale anderà in
+coda lunga alta.
 
-Quarta stretta. Potete urtare con l'elzo della vostra spada in quella del nimico all'insù, verso le sue parti manche, passando tutto a un tempo del pie sinistro innanzi, volgendogli per testa un riverso tramazzone, co'l quale vi fermarete in coda lunga alta.
+Quarta stretta. Potete urtare con l'elzo della vostra spada in quella del nimico
+all'insù, verso le sue parti manche, passando tutto a un tempo del pie sinistro
+innanzi, volgendogli per testa un riverso tramazzone, co'l quale vi fermarete in
+coda lunga alta.
 
-Il contrario di questa è. Che quando il nimico urtarà dell'elzo nella vostra spada; voi subito tirarete il pie dritto indietro un passo, dandogli in quel tempo d'un mandritto tramazzone per la mano della spada, co'l quale vi ridurrete in cinghiale porta di ferro.
+Il contrario di questa è. Che quando il nimico urtarà dell'elzo nella vostra
+spada; voi subito tirarete il pie dritto indietro un passo, dandogli in quel
+tempo d'un mandritto tramazzone per la mano della spada, co'l quale vi ridurrete
+in cinghiale porta di ferro.
 
-Quinta. Potete far'una mezza volta di pugno, non movendo la spada dalla sua, in atto di volgergli un riverso tramazzone: & in quel tempo gli volgerete il pomo della vostra spada sopra il nodo della sua mano per di fuori, calcando all'ingiù di nodo, che gli possiate ferire la testa d'un riverso. Ancora nel medesimo tempo gli potreste dare del pie manco di dietro alla sua gamba dritta, che facilmente lo potreste fare cadere, ò vero con la mano manca potete fargli presa al braccio della spada, & poi ferirlo di quello, che più vi sarà opportuno.
+Quinta. Potete far'una mezza volta di pugno, non movendo la spada dalla sua, in
+atto di volgergli un riverso tramazzone: & in quel tempo gli volgerete il pomo
+della vostra spada sopra il nodo della sua mano per di fuori, calcando all'ingiù
+di nodo, che gli possiate ferire la testa d'un riverso. Ancora nel medesimo
+tempo gli potreste dare del pie manco di dietro alla sua gamba dritta, che
+facilmente lo potreste fare cadere, ò vero con la mano manca potete fargli presa
+al braccio della spada, & poi ferirlo di quello, che più vi sarà opportuno.
 
-Il contrario della predetta sarà. Come vedrete volgere il pugno della spada, & voi tosto passerete del pie manco verso le sue parti dritte, volgendogli per testa d'un riverso sgualimbro, co'l quale vi agiarete in coda lunga alta.
+Il contrario della predetta sarà. Come vedrete volgere il pugno della spada, &
+voi tosto passerete del pie manco verso le sue parti dritte, volgendogli per
+testa d'un riverso sgualimbro, co'l quale vi agiarete in coda lunga alta.
 
-Sesta stretta. Nel giungere alla mezza spada, volgerete il pugno, spingendo all'ingiù la sua spada, & subito gli segarete d'un riverso tondo per faccia, seguitato da un riverso sgualimbro, co'l quale vi ridurrete in coda lunga stretta.
+Sesta stretta. Nel giungere alla mezza spada, volgerete il pugno, spingendo
+all'ingiù la sua spada, & subito gli segarete d'un riverso tondo per faccia,
+seguitato da un riverso sgualimbro, co'l quale vi ridurrete in coda lunga
+stretta.
 
-Il contrario di questa è. Quando il nimico spingerà all'ingiù la vostra spada, & voi subito ritirerete il pie destro indietro un passo, volgendogli in quel tempo un riverso tramazzone per la nimica mano: il quale anderà in coda lunga alta. 
+Il contrario di questa è. Quando il nimico spingerà all'ingiù la vostra spada, &
+voi subito ritirerete il pie destro indietro un passo, volgendogli in quel tempo
+un riverso tramazzone per la nimica mano: il quale anderà in coda lunga alta.
 
 Et così per la Dio gratia haveremo dato fine allo schermo di spada sola.
 
-**Lep.** Ne resto con mia gran sodisfattione; ma mi son restati certi dubbij, i quali desiderarei, che voi \(avanti che diamo luogo\) me li dichiaraste: & uno è questo. Sono molti, che dicono, che nel fare da dovero, non si fanno tante sottilità, che sono in quest'arte.
+**Lep.** Ne resto con mia gran sodisfattione; ma mi son restati certi dubbij, i
+quali desiderarei, che voi \(avanti che diamo luogo\) me li dichiaraste: & uno è
+questo. Sono molti, che dicono, che nel fare da dovero, non si fanno tante
+sottilità, che sono in quest'arte.
 
 **Gio.** Come indendono essi queste sottilità?
 
-**Lep.** Dicono che non si finge, non si sfallazza, et che non vi è tempo di scansare di vita, & simil cose.
+**Lep.** Dicono che non si finge, non si sfallazza, et che non vi è tempo di
+scansare di vita, & simil cose.
 
-**Gio.** Dicono così, perché rarissimi huomini si troveranno, i quali nel fare da dovero non siano mossi dalla colera, ò dalla paura, ò da altro; dove che l'intelletto viene ad esser'offuscato: & per questa cagione non la possono usare. Ma vi dico, che quando essi non si lasciano vincere da questi accidenti, & che stanno in se, ancor che siano alquanto difficili, le faranno sicurissime.
+**Gio.** Dicono così, perché rarissimi huomini si troveranno, i quali nel fare
+da dovero non siano mossi dalla colera, ò dalla paura, ò da altro; dove che
+l'intelletto viene ad esser'offuscato: & per questa cagione non la possono
+usare. Ma vi dico, che quando essi non si lasciano vincere da questi accidenti,
+& che stanno in se, ancor che siano alquanto difficili, le faranno sicurissime.
 
 **Lep.** Ma a che fine insegnarle, se son così difficili nell'operare da dovero?
 
-**Gio.** Si insegnano acciò che gli huomini coraggiosi se ne possino servire alle lor'ocasioni perché si è veduta l'esperienza in molti, i quali erano alquanto timidi, & paurosi: nondimeno nel fare da burla, le faceano benissimo; poi essendogli venuta occasione di farle da dovero; non se ne sono potuti servire.
+**Gio.** Si insegnano acciò che gli huomini coraggiosi se ne possino servire
+alle lor'ocasioni perché si è veduta l'esperienza in molti, i quali erano
+alquanto timidi, & paurosi: nondimeno nel fare da burla, le faceano benissimo;
+poi essendogli venuta occasione di farle da dovero; non se ne sono potuti
+servire.
 
-**Lep.** Lo credo: perché quando uno perde l'animo, consequentemente perde l'arte ancora. Ma ditemi, quando fosse uno, il quale havesse a fare questione, & per la brevità del tempo non potesse imparare tutta la scienza dell'arte, che ordine terreste voi, che vi paresse buono?
+**Lep.** Lo credo: perché quando uno perde l'animo, consequentemente perde
+l'arte ancora. Ma ditemi, quando fosse uno, il quale havesse a fare questione, &
+per la brevità del tempo non potesse imparare tutta la scienza dell'arte, che
+ordine terreste voi, che vi paresse buono?
 
+**Gio.** L'esserciterei in una guardia sola, & lo farei sempre parare co'l fil
+dritto della spada, & ferire di punta.
 
+**Lep.** E in qual guardia lo essercitareste?
 
+**Gio.** In porta di ferro stretta, accompagnata però con la guardia d'alicorno,
+co'l destro piede innanzi: perché si come tutti i colpi hanno il lor principio
+da una guardia, & poi finiscono in un'altra; così ancor senza essa fare non si
+potrebbe: essendo che non si può tirare punta sopramano, che non habbia il suo
+principio dalla detta guardia, & che non finisca in porta di ferro: & per questa
+ragione è di necessità servirsi di essa ancora.
 
+**Lep.** Perché cagione havete eletto porta di ferro?
 
+**Gio.** Per due cagioni: l'una è, che non si ha quasi mai da difendere se non
+le parti destre: l'altra che da questa guardia ne nasce gran difesa, & grande
+offesa: essendo, che si posson difendere con un riverso tutti i colpi, che dal
+nimico possano esser tirati, & offendere con una punta sopramano.
 
+Et si come il parare di riverso è più forte, & più facile, così ancora il ferire
+di punta sopramano è più mortale, & più difficile da schermire: & queste sono le
+cagioni, per le quali ho scielto questa guardia.
 
+**Lep.** Ditemi di gratia la maniera di parare co'l detto riverso tutti i colpi,
+che il nimico possa tirare, & poi offenderlo con la punta sopramano.
 
+**Gio.** Di questo ne ho fatto mentione nel ragionamento delle difensioni, che
+in porta di ferro far si possono.
 
+**Lep.** E vero che voi ne havete fatto mentione, ma insieme con l'altre: però
+se non vi fosse molesto, desiderarei che hora ne ragionaste appartatamente, et
+che diceste la maniera del difendere co'l detto riverso i colpi che il nimico
+tirar potesse, acciò che meglio ne possa divenire capace.
 
+**Gio.** Ne ragionerò per compiacervi. Dico adunque; che nel mettere mano alla
+spada, vorrei ch'egli si fermasse in guardia d'alicorno co'l pie destro innanzi:
+& come fosse appresso al nimico, gli spingesse un'imbroccata senza
+passeggiamento alcuno: la quale si fermasse in porta di ferro stretta; & questo
+lo farei non per ferire all'hora, ma solo per provocarlo al tirare, accioché
+vedendo il discoperto; havesse cagione di rispondere.
 
+**Lep.** Ma se per caso il nimico non volesse rispondere?
+
+**Gio.** Moversi un poco verso le parti dritte, e in tal movimento ritornare in
+guardia d'alicorno, et respingerli la imbroccata: dove ch'egli sarebbe forzato a
+respondere, ò ritirarsi indietro.
+
+Ma voglio che poniamo caso, ch'egli li rispondesse d'un mandritto per testa: lo
+farei alquanto crescere del pie manco verso le parti destre del nimico, e in tal
+tempo parare il colpo con un riverso sgualimbro, passando tosto del pie dritto, 
+e spingendogli un'imbroccata per il petto: la quale ritornasse nella detta
+guardia.
+
+Ma s'egli gli rispondesse di riverso per gamba, lo farei schermire con un
+riverso ridoppio, tenendo però nel medesimo ordine nel passare de'piedi,
+spingendogli un'imbroccata per un'imbroccata per il volto, con la quale andasse
+alla predetta guardia.
+
+Ma quando egli li spingesse d'una punta sopramano, lo farei guidare il pie
+sinistro alquanto innanzi verso le sue parti dritte, & difenderla co'l fil
+dritto della spada: indi subito scorrere innanzi co'l pie destro, & ferirlo nel
+petto d'una simil punta, la quale ritornasse alla guardia di cui si ragiona.
+
+Ma se per caso gli tirasse una stoccata per faccia; lo farei passare de'piedi,
+come hò detto, e schermirsi dalla detta stoccata con un riverso sgualimbro,
+cacciandogli subito un'imbroccata ne'fianchi, & poi rimettersi in porta di
+ferro.
+
+& così con quest'ordine di parare, & ferire di due tempi, lo andarei
+esercitando. Benché l'eserciterei ancora a parare, et ferire d'un tempo solo,
+facendolo quasi, sempre passeggiare verso le parti dritte del nimico: & sopra
+ciò vorrei che facesse buona pratica.
+
+**Lep.** Mi piace quest'ordine; ma ditemi, non sarebbe anco bene, ch'egli si
+esercitasse in un'altra guardia?
+
+**Gio.** Anzi sarebbe benissimo, quando egli havesse il tempo, per tutte
+l'occorrentie: Perché se'l nimico passeggiasse ancor lui verso le parti manche,
+egli sarebbe quasi forzato a mutar guardia.
+
+**Lep.** Et mutando guardia, in qual vorreste voi, ch'egli si esercitasse?
+
+**Gio.** In coda lunga stretta: perché essendo fermo in essa; egli può anco
+parare quasi tutti i colpi del nimico co'l filo dritto della spada, & ferire di
+punta.
 
 **Lep.** Poi che m'havete compiaciuto di ragionare di porta di ferro; non vi sia
 grave ancora di ragionare di quest'altra guardia, & dir'il modo, ch'egli deve
