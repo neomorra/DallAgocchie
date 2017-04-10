@@ -60,9 +60,72 @@ nimico, per maggior vostra sicurezza.
 
 Quarto & ultimo. Quando haverete ferito il nimico, & ch'egli vi rispondesse
 dalle parti di sopra, & voi vi voleste schermire dalla risposta sua con l'armi
-accompagnate, terrete il medesimo ordine di sopra detto. Et ancor, quando parlerò del difendere, & offendere , & ch'io farò mentione di accompagnare l'armi insieme; voi le accompagnerete
+accompagnate, terrete il medesimo ordine di sopra detto. Et ancor, quando
+parlerò del difendere, & offendere , & ch'io farò mentione di accompagnare
+l'armi insieme; voi le accompagnerete nel medesimo modo detto di sopra, facendo
+sempre che'l pugnale sia di dietro alla spada, che ciò facendo haverete sempre
+maggior vantaggio: perché haverete la spada più libera da potere ferire il
+nimico, et massimamente di riverso, et ancor nel parare, la spada haverà più
+forza, per esser sostenuta dal pugnale.
+
+**Lep.** Questo pugnale, Che si hà da accompagnare con la spada, di che
+grandezza vorrebbe essere?
+
+**Gio.** Debbonsi fuggir gli estremi, cioè non ha da esser, ne grande, ne
+piccolo: ma d'una honesta misura. Pur quando havesse à pendere ad uno de gli
+estremi, vorrei che pendesse alla grandezza, perché con esso si può parare più
+sicuramente.
+
+**Lep.** Circa al tenerlo in mano, come volete, voi che si tenga?
+
+**Gio.** Quasi di piatto, facendo che'l fil dritto di esso guardi alquanto verso
+le parti destre: perché haverete il nodo della mano più libero da potere spinger
+in fuori la spada del nimico, & massimamente la punta: oltra che haverete
+maggior forza nel parare per testa, per esser sostenuto il pugnale dal dito
+grosso: & di più il tenerlo come ho detto, fa che l'elzo di esso viene à fare
+maggior difesa.
+
+**Lep.** Hor ch'io ho inteso questi avertimenti; cominciate à ragionarmi delle
+difese & offese, che in esse far si possono.
 
 ###### Difese, & offese della spada, & del pugnale insieme. {#difesa_offesa}
+
+**Gio.** Primamente porremo caso, che voi vi trovaste con la spada in coda lunga
+stretta, & co'l pugnale pugnale in cinghiale porta di ferro contra il vostro
+nimico, & ch'egli vi tirasse d'un mandritto per testa; passerete innanzi del pie
+manco, et co'l pugnale andarete in guardia di testa a schermirvi: & nel medesimo
+tempo gli spingerete per uil petto una punta riversa, seguitata da un riverso
+per gamba; ò vero come haverete parato co'l pugnale; potete segarli di riverso
+per coscia, o volgerli un mandritto per testa, o per gamba come voleteù: & indi
+subito ritirare il pie manco indietro un passo, alzando l'armi insieme in
+guardia di testa, per assicurarvi dalla risposta, che di sopra venisse: il che
+fatto ritornerete nelle guardie sopradette.
+
+Potete ancora parare con l'armi accompagnate, raccogliendo in quel tempo il pie
+manco appresso al dritto, & urtare in fuori co'l pugnale la spada del nimico, &
+subito crescere del destro, & segarli di riverso per gamba: & per vostro schermo
+tirare il pie dritto appresso al manco, spingendogli una punta per sotto il
+pugnale; il che fatto vi rimetterete nelle sopradette guardie.
+
+Voi oltra di ciò potete difendere il detto mandritto con la spada accompagnata
+dal pugnale in guardia di faccia, e in quel tempo crescere innanzi del pie
+destro, e spingerli la punta per il volto: il che fatto vi rassetterete nelle
+guardie di sopra nominate.
+
+Ma quando egli vi volesse ferire d'un mandritto per gamba; potete schermirvi
+co'l fil dritto del pugnale, abbassando la punta di esso verso terra, & tutto a
+un tempo scorrendo innanzi del pie dritto, ferirlo d'una punta per faccia, o
+volgerli d'un riverso per testa, facendo ch'el pie sinistro segua il destro per
+di dietro.
+
+Si può anco tirare il pie dritto appresso al manco, spingendogli la punta per il
+volto in compagnia del pugnale, & subito ritornare alle guardie, di cui si
+ragiona. Ma s'egli vi volgesse di riverso per testa; potete pararlo co'l fil
+dritto della spada, cacciandogli un'imbroccata per fianco, sì che'l pie sinistro
+spinga il destro innanzi: overo dopo che haverete parato il colpo con la spada,
+potete volgerli d'un riverso, ò d'altro, ò da basso, dove vi tornerà meglio.
+
+
 
 ###### Modo di provocare & ferire il nimico, che non voglia tirare. {#provocare_passivo}
 
