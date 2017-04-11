@@ -1,7 +1,7 @@
 {
     "pdf": {
-        "fontFamily":"serif",
+        "fontFamily":"Palatino",
         "paperSize": "a4",
-        "fontSize": "10"
+        "fontSize": "11"
     }
 }
