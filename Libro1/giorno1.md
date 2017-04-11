@@ -74,7 +74,7 @@ saper con giudicio & prudenza difendersi dal nimico, & lui offendere, così nell
 città, come negli eserciti, & in ogni altro luogo: perché non essendo, ne
 significando altro questa voce schermire, che difendersi, con modo di offendere
 il nemico; chiaro é che si può pigliare generalmente per ogni forte di
-combattimento. Ma igliandola noi in specie, per lo combattere da solo a solo, è
+combattimento. Ma pigliandola noi in specie, per lo combattere da solo a solo, è
 manifesto, che è parte, anzi scala, & guida all'arte della guerra, per esser
 necessario molte volte usare quest'arte in difesa della propria vita; Come per
 gli esempij di tante Historie si legge, & ogni dì si vede. Perciò vi dico ch'uno
