@@ -351,7 +351,7 @@ Così la dimandarono dalla comparatione del Cinghiale, o diciamo Porco selvatico
 il quale quando è assalito, viene col dente per traverso a ferire: & queste sono
 le guardie basse.
 
-**Lep.** Gabrei grato sapere, c'havendo voi detto coda lunga stretta all'una
+**Lep.** Havrei grato sapere, c'havendo voi detto coda lunga stretta all'una
 delle guardie, sè all'altra dire similmente si potrà porta di ferro stretta.
 
 **Gio.** Stretta, & larga, & alta se le dice: perché questa guardia si può fare
