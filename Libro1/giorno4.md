@@ -62,7 +62,6 @@ Quarto & ultimo. Quando haverete ferito il nimico, & ch'egli vi rispondesse
 dalle parti di sopra, & voi vi voleste schermire dalla risposta sua con l'armi
 accompagnate, terrete il medesimo ordine di sopra detto. Et ancor, quando
 parlerò del difendere, & offendere , & ch'io farò mentione di accompagnare
-<<<<<<< HEAD
 l'armi insieme; voi le accompagnerete nel medesimo modo detto di sopra, facendo
 sempre che'l pugnale sia di dietro alla spada, che ciò facendo haverete sempre
 maggior vantaggio: perché haverete la spada più libera da potere ferire il
@@ -88,9 +87,6 @@ maggior difesa.
 
 **Lep.** Hor ch'io ho inteso questi avertimenti; cominciate à ragionarmi delle
 difese & offese, che in esse far si possono.
-=======
-l'armi insieme; voi le accompagnerete
->>>>>>> origin/giorno4
 
 ###### Difese, & offese della spada, & del pugnale insieme. {#difesa_offesa}
 
@@ -128,6 +124,17 @@ ragiona. Ma s'egli vi volgesse di riverso per testa; potete pararlo co'l fil
 dritto della spada, cacciandogli un'imbroccata per fianco, sì che'l pie sinistro
 spinga il destro innanzi: overo dopo che haverete parato il colpo con la spada,
 potete volgerli d'un riverso, ò d'altro, ò da basso, dove vi tornerà meglio.
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -209,7 +216,10 @@ provocationi.
 
 ###### Secondo modo di provocare, & offendere il nimico. {#seconda}
 
-**Gio.** Hor seguendo la seconda maniera di provocare il nimico, dico; Che quando amendue vi trovaste con la spada in coda lunga alta, & co'pugnali in porta di ferro, lo potete provocare con un falso dritto, ò due, tirandogli per la mano del pugnale, & poi tutto a un tempo crescere innanzi del pie dritto
+**Gio.** Hor seguendo la seconda maniera di provocare il nimico, dico; Che
+quando amendue vi trovaste con la spada in coda lunga alta, & co'pugnali in
+porta di ferro, lo potete provocare con un falso dritto, ò due, tirandogli per
+la mano del pugnale, & poi tutto a un tempo crescere innanzi del pie dritto
 
 ###### Punta in falso, & mandritto in falso. {#punta_mandritto_falso}
 
