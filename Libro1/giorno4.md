@@ -155,7 +155,13 @@ fermo con la spada, & co'l pugnale in queste due guardie di sopra nominate.
 
 Hor venendo alle seconde guardie, dico; Che essendo voi con la spada in coda
 lunga alta, & co'l pugnale in porta di ferro allta, & che'l nimico vi tirasse
-d'un mandritto per testa;
+d'un mandritto per testa, alzarete il pugnale a guardia di testa, & quivi schermendovi da esso; passerete tutto a un tempo del pie destro innanzi, spingendogli la punta per il petto: ò vero nel passare innanzi; potete darli d'un mandritto sgualimbro a traverso il braccio della spada, & subito ritornare del pie dritto indietro un passo, con amendue l'armi insieme, & rimettervi alle dette guardie.
+
+Potete oltra di ciò nel passare innanzi del pie dritto, parare il detto colpo con l'arme accompagnate, & segarli d'un riverso per gamba, facendo che'l pugnale resti alla difesa della testa. Di più potete nel crescere del piede, andare a schermirvi del detto mandritto con la spada in guardia di faccia, insieme co'l pugnale, e spingerli in quel tempo la punta nel volto: il che fatto vi ridurrete alle guardie sopradette.
+
+Ma se egli vi rispondesse di mandritto per gamba; potete pararlo co'l fil dritto del pugnale, chinando la punta d'esso verso terra: & gli caccierete una stoccata per faccia, seguita da un mandritto per gamba: ò vero tirarete il pie manco indietro un passo, volgendogli un riverso su'l braccio della spada: & ciò fatto ritornarete alle guardie di sopra nominate.
+
+Ma s'egli vi volgesse di riverso per testa; 
 
 
 
