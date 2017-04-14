@@ -74,24 +74,30 @@ saper con giudicio & prudenza difendersi dal nimico, & lui offendere, così nell
 città, come negli eserciti, & in ogni altro luogo: perché non essendo, ne
 significando altro questa voce schermire, che difendersi, con modo di offendere
 il nemico; chiaro é che si può pigliare generalmente per ogni forte di
-combattimento. Ma igliandola noi in specie, per lo combattere da solo a solo, è
-manifesto, che è parte, anzi scala, & guida all'arte della guerra, per esser
-necessario molte volte usare quest'arte in difesa della propria vita; Come per
-gli esempij di tante Historie si legge, & ogni dì si vede. Perciò vi dico ch'uno
-non può esser fondato, ne perfetto nell'arte della militia, il qual non habbia
-questa parte: atteso che niuna cosa si chiama perfetta, quando se le debbe o può
-aggiungere; & dovendosi aggiungere all'arte del combattere il sapere difendere
-la propria persona, anzi ciò essendo il fondamento principale; chi non haverà
-quest'arte, non potrà giamai esser chiamato perfetto. Che questa sia la 
-principale ch'esser vi debbia; lo provo dalla nobiltà, la quale deve ad ogni
-altra cosa esser preferita: Et dico, \(lasciando per hora da parte le cose 
-dell'anima\) che si come il corpo humano più di tutte l'altre cose è nobile;
-così di ragione prima si deve imparare a difendere questo, che la Città, & gli 
-esserciti, come che questi per la difesa humana siano ordinati: & dovendo la 
-persona in ogni sorte di militia trasporsi; di necessità bisogna prima à quella 
-per tutte le occorrenze provedere. Ne vi crediate che questo mio detto contrasti
-a quel gran filosofo Solone, il quale vuole, che si debba preporre la difesa
-della patria, alla propria vita. percioché egli non intende di questa patria
+combattimento.
+
+Ma pigliandola noi in specie, per lo combattere da solo a solo, è manifesto, che
+è parte, anzi scala, & guida all'arte della guerra, per esser necessario molte
+volte usare quest'arte in difesa della propria vita; Come per gli esempij di
+tante Historie si legge, & ogni dì si vede. Perciò vi dico ch'uno non può esser
+fondato, ne perfetto nell'arte della militia, il qual non habbia questa parte:
+atteso che niuna cosa si chiama perfetta, quando se le debbe o può aggiungere; &
+dovendosi aggiungere all'arte del combattere il sapere difendere la propria
+persona, anzi ciò essendo il fondamento principale; chi non haverà quest'arte,
+non potrà giamai esser chiamato perfetto.
+
+Che questa sia la principale ch'esser vi debbia; lo provo dalla nobiltà, la
+quale deve ad ogni altra cosa esser preferita: Et dico, \(lasciando per hora da
+parte le cose dell'anima\) che si come il corpo humano più di tutte l'altre cose
+è nobile; così di ragione prima si deve imparare a difendere questo, che la
+Città, & gli esserciti, come che questi per la difesa humana siano ordinati: &
+dovendo la persona in ogni sorte di militia trasporsi; di necessità bisogna
+prima à quella per tutte le occorrenze provedere.
+
+Ne vi crediate che questo mio detto contrasti a quel gran filosofo Solone, il
+quale vuole, che si debba preporre la difesa della patria, alla propria vita.
+
+percioché egli non intende di questa patria
 materiale, fabbricata di pietra: ma di quella radunanza di huomini, per li quali
 la Città materiale è fabricata. Ora costoro difendendosi dall'impeto de' nimici,
 anzi ributtando in un tempo stesso l'insolenza loro con arte & con maestria;
@@ -138,7 +144,9 @@ che così essendo come è; sarà ancora chiaro, che se uno non si vorrà difende
 ne porsi in opera; ne resterà perditore, ancor che la ragione per lui havesse:
 percioché al favor suo viene a rinunciare: & di ciò deve riprender solamente se
 stesso. nè mi negherete che la provisione necessaria non sia: la quale nasce 
-dall'arte dello schermo, come hora dirò. Io credo che quando uno haverà tagione,
+dall'arte dello schermo, come hora dirò.
+
+Io credo che quando uno haverà ragione,
 & animo, & forza di mantenerla, aggiunte a quest'arte, colui il più delle volte
 sarà il vincitore, & in questo procede l'argomento vostro. Ma quando esso 
 rinuncia il favore suo, in non volere apprendere, come si habbia a difendere, se
@@ -158,11 +166,14 @@ informare un corpo a questo essercitio atto, & disposto, & con animo & forze
 convenevoli: Però giamai non mi negherete, che non sapendo alcuno del certo di
 possedere queste qualità \(come la maggior parte si ritrova\) sempre non sia
 necessario provederli cautamente, et con tutti i mezzi a tale impresa
-favorevoli. Oltra di ciò dico, che producendo la natura le cose co'l bene , &
+favorevoli.
+
+Oltra di ciò dico, che producendo la natura le cose co'l bene , &
 co'l male, ancora che uno possegga le parti dette di sopra; nondimeno non
 conoscendole, non potrà di esse valersi, se non co'l giudicio, il quale mediante
 l'arte s'acquista: & ben che sappia tirare mandritti, roversi, & punte;
 nondimeno gli potrebbe adoperar così in suo favore, come in suo pregiudicio.
+
 Alla quale cosa l'arte imitatrice della natura, ponendo mente; con la prova &
 con l'essercitio, cerca di farlo sciente, & capace. Et farebbe, come per
 essempio, un dire, che la natura dà le parole agli huomini, & che da natura 
@@ -170,7 +181,9 @@ parlano:  ma però se con l'arte della eloquenza non si aiutano; mai non saprann
 perfettamente formare il lor ragionamento, secondo le occasioni, & i tempi che
 loro si appresenteranno. Similmente da natura gli huomini hanno la voce, &
 cantano: nondimeno mai con ragione non canteranno, se la musica non vi
-s'interpone. Et da natura il Cavallo nasce forte, & atto alla battaglia: ma però
+s'interpone.
+
+Et da natura il Cavallo nasce forte, & atto alla battaglia: ma però
 giamai non potrà il Cavalliero servirsene a quest'uso, se prima egli non l'havrà
 con ragion domato, & havendolo al maneggio assuefatto, ad ogni suo volere non
 l'havrà fatto ubbidiente. Quanto all'esperienza, si vede principalmente, che
@@ -195,7 +208,9 @@ liberali consistono in Theorica, & in prattica; così ancor questa. & per la
 Theorica, & per la prattica deve essere considerata. La Theorica dell'arte dello
 schermo insegna con ragione i modi del difendersi, & dell'offendere il nimico.
 La prattica poi è quella che si acquista dalla consuetudine dell'operare, cioè
-con lungo uso, & con esercitio continuo. Ma alcuni Maestri di quest'arte a mal
+con lungo uso, & con esercitio continuo.
+
+Ma alcuni Maestri di quest'arte a mal
 fine l'indirizzano: percioché non sapendo che la Theorica, & la prattica siano
 diverse; come prima posseggono un poco di prattica, si mettono ad insegnare: Il
 che solo procede, perché è andata in oblivione quell'antica usanza della
@@ -351,7 +366,7 @@ Così la dimandarono dalla comparatione del Cinghiale, o diciamo Porco selvatico
 il quale quando è assalito, viene col dente per traverso a ferire: & queste sono
 le guardie basse.
 
-**Lep.** Gabrei grato sapere, c'havendo voi detto coda lunga stretta all'una
+**Lep.** Havrei grato sapere, c'havendo voi detto coda lunga stretta all'una
 delle guardie, sè all'altra dire similmente si potrà porta di ferro stretta.
 
 **Gio.** Stretta, & larga, & alta se le dice: perché questa guardia si può fare
