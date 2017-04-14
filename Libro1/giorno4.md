@@ -395,18 +395,56 @@ ferma nel ragionare di esse, hor ne voglio ragionare variatamente.
 
 **Lep.** Questo ancora mi sarà sommamente caro.
 
+**Gio.** Ritrovandovi dunque con la spada in coda lunga stretta, & co'l pugnale
+in cinghiale porta di ferro, & che'l nimico vi spingesse per faccia una punta
+riversa, per darvi d'un riverso per gamba, dalla detta punta vi difenderete co'l
+falso della spada. Ma quando egli volgerà il riverso; voi subito tirerete il pie
+destro indietro un passo, e in quel tempo li volgerete un dritto tramazzone al
+braccio della spada, il quale calerà in cinghiale porta di ferro, & co'l pugnale
+anderete in guardia di testa.
 
+Hor se'l nimico vi rispondesse d'una stoccata per faccia, per darvi d'un
+mandritto per testa; la pararete co'l fil dritto della spada; ma nel volgervi
+del mandritto, voi tosto guidarete innanzi il pie destro, & tutto a un tempo
+andarete con la spada in guardia, spingendogli la punta per il volto,
+accompagnata da un dritto tramazzone: co'l quale vi fermerete in porta di ferro
+stretta, & co'l pugnale in coda lunga alta.
 
+Ma s'egli vi fingesse d'un riverso per testa, per cagion di ferirvi d'un simil
+per gamba; al primo alzerete la spada a guardia di testa; ma nel volgervi il
+secondo: tirerete il pie dritto un passo, e in uno stesso tempo li datete\[sic\]
+d'un riverso su'l destro braccio: & così la spada resterà in coda lunga alta, &
+il pugnale in porta di ferro.
 
+Hor s'egli vi tirasse di mandritto per testa, ò per gamba; ma poniamo per testa:
+andarete co'l pugnale in guardia di testa a schermirvi, passando tosto del pie
+destro innanzi, spingendogli una stoccata per il petto. Et quando egli lo
+tirasse per gamba, lo pararete co'l fil dritto del pugnale, chinando la punta di
+esso verso terra, e in quel instante passerete innanzi del pie destro, dandogli
+d'un mandritto per testa, ò per gamba, il quale sarà seguitato da un riverso
+ridoppio: & così andarete con esso in guardia d'alicorno, & il pugnale resterà
+in cinghiale porta di ferro.
 
+Ma quando egli accennasse di darvi nel volto d'una punta in falso per ferirvi
+d'un mandritto per gamba; vi assicurerete dalla detta punta co'l pugnale, senza
+mover piedi. Et se pur vorrà ferirvi del mandritto; voi subito tirerete il pie
+destro indietro un passo, e in uno stesso tempo li volgerete un mandritto al
+braccio della spada, accompagnato da un riverso di sotto in sù, co'l quale vi
+ridurrete in guardia d'alicorno, co'l manco piede iananzi\[sic\], & co'l pugnale
+in porta di ferro alta.
 
+Hor se'l nimico vi rispondesse di mandritto, ò riverso, ò di punta; potete
+parare co'l pugnale, & indi subito crescere innanzi del pie destro verso le sue
+parti sinistre, e spingerli la punta per il petto: & con questo farò fine al
+variare delle guardie, nelle quali vi ho dimostrato quel che si potrà fare. 
 
+Ben'è vero, che se ne potrebbe parlare più diffusamente; ma noi studiando alla
+brevità, resteremo per hora di più ragionarne, massimamente, ch'io voglio
+dimostrarvi la maniera, c'havete a tenere nel provocare il nimico, & ferirlo
+ancora, quando egli non volesse tirare, accioché venendovi l'occasione ve ne
+possiate servire.
 
-
-
-
-
-
+**Lep.** Me ne farete piacere.
 
 ###### Modo di provocare & ferire il nimico, che non voglia tirare. {#provocare_passivo}
 
@@ -489,14 +527,168 @@ provocationi.
 **Gio.** Hor seguendo la seconda maniera di provocare il nimico, dico; Che
 quando amendue vi trovaste con la spada in coda lunga alta, & co'pugnali in
 porta di ferro, lo potete provocare con un falso dritto, ò due, tirandogli per
-la mano del pugnale, & poi tutto a un tempo crescere innanzi del pie dritto
+la mano del pugnale, & poi tutto a un tempo crescere innanzi del pie dritto, e
+spingerli nel petto una punta riversa, per di fuori dalle sue destre parti,
+seguitata da un riverso per gamba.
+
+Potete anco nel crescere del pie dritto, tirarli di mezzo mandritto per la man
+del pugnale, in compagnia d'un riverso sgualimbro, ò vero nel crescere innanzi,
+li spingerete una punta sopramano, con la quale vi fermerete in porta di ferro
+stretta, & co'l pugnale in coda lunga alta.
+
+Appresso nel passare del pie dritto voi potete spingerli per il volto una punta
+in falso, accompagnata da un mandritto per gamba: ò vero dopo c'haverete spinta
+la predetta punta, potete far vista di volgerli per testa un mandritto; ma però
+li volgerete d'un riverso per gamba.
+
+Et questa è la seconda maniera  di provocare il nimico, et ferirlo ancora,
+essendo nelle due guardie sopradette.
+
+**Lep.** Questa punta in falso come si fa?
 
 ###### Punta in falso, & mandritto in falso. {#punta_mandritto_falso}
 
+**Gio.** Si spinge la punta della spada co'l braccio ben disteso per di fuori
+dalle sue manche parti, facendo che'l falso di essa vada verso la sua faccia,
+volgendo in quel tempo la persona dietro le vostre parti dritte: & similmente si
+può fare un mandritto in falso, & un riverso ancora: i quali si fanno mentre che
+si tira il colpo, perché quasi nel colpire di esso, & massimamente del
+mandritto, si volge il dritto della mano all'insù, & per questa cagione
+pigliarono questi nomi. 
+
+Hor seguendo i contrarij delle dette provocationi, dico; Che quando il nimico
+tirerà del falso per la manca mano, alzerete il pugnale a guardia di testa, &
+con la spada andarete in cinghiale porta di ferro, senza quasi mover piedi.
+
+Ma nel passare, che egli farà per spingere la punta riversa; voi crescerete
+innanzi del pie dritto, e in uno stesso tempo la pararete co'l fil dritto della
+spada, accompagnata dal pugnale, spingendogli la punta per il petto. In oltre si
+può senza movere il piede, volgerli un dritto tramazzone per la mano della
+spada.
+
+Ma quando egli nel passare innanzi del pie dritto vi tirasse di mezzo mandritto,
+per darvi del riverso; voi subito passerete del pie destro verso le parti manche
+del nimico, volgendogli in quel tempo un riverso tramazzone su'l destro braccio.
+
+Ma s'egli nel passare spingesse l'imbroccata, voi co'l pugnale la pararete,
+crescendo alquanto del pie manco verso le sue dritte parti: & tutto a un tempo
+li volgerete d'un riverso per testa, & la spada ritornerà in coda lunga alta.
+
+Ma quando egli spingerà la punta in falso, per darvi del mandritto per gamba;
+co'l pugnale vi schermiretedalla detta punta, & nel volgere del mandritto; voi
+subito passerete innanzi del pie destro verso le sue manche parti: ma in questo
+passaggio li caccierete per fianco una punta sopramano.
+
+Hor s'egli nel crescere del piede farà vista di darvi d'un mandritto, & poi
+subito volgerà il riverso per testa; voi al mandritto alzarete il pugnale a
+guardia di testa: ma nel volgere del riverso passerete innanzi del pie dritto,
+volgendo il fil dritto della vostra spada in compagnia del pugnale contra il
+detto colpo, spingendogli subito la punta nella faccia.
+
+Ma se dopo il predetto mandritto volgesse il riverso per gamba, lo potete parare
+con un riverso ridoppio: indi subito crescere alquanto innanzi, & ferirlo d'una
+imbroccata per il petto.
+
+Et questi sono i contrarij alle predette offese.
+
 ###### Terzo modo di provocare & offendere. {#terza}
+
+Hora udite la terza maniera di provocare, & offender'il nimico: la quale è, che
+essendo amendue con le spade in porta di ferro stretta, & co'pugnali in coda
+lunga alta; voi potete urtare co'l falso della vostra spada contra quella del
+nimico, & segali di mandritto per faccia, facendo che'l pie manco spinga il
+destro innanzi: ò vero fingerli per testa un dritto tramazzone, & nondimeno
+volgerli un riverso per coscia.
+
+Potete ancora spingerli per faccia una punta riversa, passando innanzi del pie
+sinistro, et subito crescere del destro, & volgerli un riverso per gamba, ò
+ferirlo per fianco di una punta sopramano.
+
+Si può inoltre spingere la detta punta co'l pie dritto, & subito passare del pie
+manco, & urtare in fuori co'l pugnale la sua spada per sotto la vostra, ma tutto
+a un tempo darli d'un mandritto per gamba.
+
+Dopo questo potete anco spingere due punte riverse: la prima è passare del pie
+manco verso le sue dritte parti, spingendola per il volto, & mentre che egli
+alzasse la spada per difenderla: voi subito crescerete innanzi del pie dritto, &
+co'l pugnale urtarete in fuori la sua spada, cacciandogli l'altra per il petto.
+Et questa è la terza maniera di provocare il nimico,in queste due guardie.
+
+Hor ascoltate i suoi contrarij. Il primo sarà che come egli urterà del falso
+nella vostra spada, tirarete il pie dritto all'indietro, volgendogli tutto a un
+tempo un mandritto per la man della spada: il quale calerà in cinghiale porta di
+ferro, & il pugnale a guardia di testa.
+
+Secondo nel finger ch'egli farà il tramazzone; alzerete il pugnale in guardia di
+testa, & come egli volgerà il riverso per coscia, lo pararete co'l fil dritto
+della spada, chinando la punta di essa verso terra, & subito li spingerete per
+il petto una punta sopramano.
+
+Terzo quando egli spingerà l'imbroccata, ò vero volgerà il riverso, tirerete il
+pie dritto indietro un passo, volgendogli in quel tempo un riverso sgualimbro al
+braccio della spada.
+
+Quarto nello spingere, ch'egli farà la predetta punta co'l pie destro innanzi
+per darvi del mandritto per gamba;la pararete con la guardia in guardia
+d'entrare: ma nel passare ch'egli farà del manco piede innanzi per urtare del
+pugnale, in difensione di esso tirarete il pie dritto indietro un passo, insieme
+con un riverso, co'l quale andarete in coda lunga alta.
+
+Quinto & ultimo, quando egli spingerà le due punte; difenderete la prima co'l
+falso della spada: ma come egli passerà del destro per spingere la seconda; voi
+subito passerete del pie manco verso le sue dritte parti, & li urtarete co'l
+pugnale; ma in uno instante gli volgerete per testa un riverso sopramano,
+facendo che'l pie destro segua il sinistro per di dietro: & con questo haverò
+dato fine a contrarij di queste altre provocationi, & offensioni.
+
+Hor ascoltate la quarta di cinghiale porta di ferro: la quale sarà, che
+ritrovandovi co'l vostro nimico con le spade in detta guardia, & co'pugnali in
+guardia di testa; potete spingerli una punta per faccia, passando co'l pie
+dritto innanzi, & accompagnarla con un riverso per gamba: ò vero, come haverete
+spinto la detta punta; potete volgerli per testa due mandritti, facendo calare
+l'ultimo in porta di ferro alta.
+
+Potete appresso passare innanzi del pie destro, & subito volgerli un dritto
+trammazzone al braccio della spada, ò vero nel passare del detto piede; potete
+far vista di spingerli per faccia una punta riversa: ma nondimeno farete una
+mezza volta di pugno, spingendogli subito un'imbroccata per fianco: & questi
+sono i modi, che potete fare nel provocare il nimico, essendo in queste due
+guardie sopradette: le quali provocationi si fanno più per incitare il nimico al
+respondere, che per altro.
+
+**Lep.** Di queste provocationi quale tenete voi per le più difficili? quelle
+che si fanno con la spada sola, ò queste che si fanno con la spada, & co'l
+pugnale?
 
 ###### Provocationi con spada sola più difficili dell'altre con spada & pugnale. {#sola_difficile}
 
+**Gio.** Quelle che si fanno con la spada spada sola: perché con essa bisogna
+fare due effetti; cioè difendere, & offendere. Ma havendo il pugnale, con esso
+potete parare, & con la spada ferire.
+
 ###### Quarto modo di provocare & offendere. {#quarta}
 
+Ma per seguire i contrarij delle sopradette provocationi, dico; Che quando egli
+spingerà la punta per faccia co'l pie destro innanzi; voi quella co'l pugnale
+urtarete: ma nel volgervi il riverso per gamba; lo pararete con un riverso
+ridoppio, passando tosto del pie dritto innanzi, & in tal tempo li spingerete
+una imbroccata per il volto.
+
+Ma spingendo egli la punta per ferirvi d'un mandritto per testa; voi la
+schiferete con la spada: & mentre ch'egli passerà per ferirvi: voi gettando il
+pie sinistro di dietro al destro; li percoterete di mezzo mandritto il braccio
+della spada.
+
+Ma quando egli nel passare che farà; volgesse il tramazzone, voi subito
+passerete innanzi del pie dritto, et con la spada andarete a parare in guardia
+d'entrare in compagnia del pugnale, spingendogli tutto à un tempo la punta per
+il petto.
+
+Hor se pure egli spingerà la punta riversa, voi quella co'l falso della spada
+urtarete.
+
+Ma nello spingere l'imbroccata, la pararete con un riverso ridoppio, passando in quell'instante del pie dritto innanzi, & con una punta sopramano li ferirete la faccia: & questi sono i suoi contrarij.
+
 ###### Quinto modo di provocare & offendere. {#quinta}
+
+Hor venendo alla quinta maniera di provocare il nimico, essendo amendue con la spada in guardia d'alicorno co'l pie dritto innanzi, & co'pugnali
