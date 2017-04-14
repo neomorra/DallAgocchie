@@ -687,8 +687,12 @@ il petto.
 Hor se pure egli spingerà la punta riversa, voi quella co'l falso della spada
 urtarete.
 
-Ma nello spingere l'imbroccata, la pararete con un riverso ridoppio, passando in quell'instante del pie dritto innanzi, & con una punta sopramano li ferirete la faccia: & questi sono i suoi contrarij.
+Ma nello spingere l'imbroccata, la pararete con un riverso ridoppio, passando
+in quell'instante del pie dritto innanzi, & con una punta sopramano li ferirete
+la faccia: & questi sono i suoi contrarij.
 
 ###### Quinto modo di provocare & offendere. {#quinta}
 
-Hor venendo alla quinta maniera di provocare il nimico, essendo amendue con la spada in guardia d'alicorno co'l pie dritto innanzi, & co'pugnali
+Hor venendo alla quinta maniera di provocare il nimico, essendo amendue con la
+spada in guardia d'alicorno co'l pie dritto innanzi, & co'pugnali
+
