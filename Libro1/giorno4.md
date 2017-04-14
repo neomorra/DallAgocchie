@@ -169,69 +169,229 @@ schermirvi del detto mandritto con la spada in guardia di faccia, insieme co'l
 pugnale, e spingerli in quel tempo la punta nel volto: il che fatto vi ridurrete
 alle guardie sopradette.
 
-Ma quando egli vi rispondesse di mandritto per gamba; potete pararlo co'l fil dritto
-del pugnale, chinando la punta d'esso verso terra: & gli caccierete una stoccata
-per faccia, seguita da un mandritto per gamba: ò vero tirarete il pie manco
-indietro un passo, volgendogli un riverso su'l braccio della spada: & ciò fatto
-ritornarete alle guardie di sopra nominate.
+Ma quando egli vi rispondesse di mandritto per gamba; potete pararlo co'l fil
+dritto del pugnale, chinando la punta d'esso verso terra: & gli caccierete una
+stoccata per faccia, seguita da un mandritto per gamba: ò vero tirarete il pie
+manco indietro un passo, volgendogli un riverso su'l braccio della spada: & ciò
+fatto ritornarete alle guardie di sopra nominate.
 
-Ma s'egli vi volgesse di riverso per testa; lo pararete co'l pugnale, & subito andarete innanzi del pie destro, spingendogli per il petto una punta riversa: ò vero gli segarete di riverso per coscia. Potete anco parare il detto colpo con la spada in guardia d'entrare, sostenuta dal pugnale: & nel medesimo tempo passare innanzi, e spingerli la punta per il volto: indi subito tornare indietro del pie destro, accompagnandovi una punta, con la quale vi agiarete nelle sopradette guardie.
+Ma s'egli vi volgesse di riverso per testa; lo pararete co'l pugnale, & subito
+andarete innanzi del pie destro, spingendogli per il petto una punta riversa: ò
+vero gli segarete di riverso per coscia. Potete anco parare il detto colpo con
+la spada in guardia d'entrare, sostenuta dal pugnale: & nel medesimo tempo
+passare innanzi, e spingerli la punta per il volto: indi subito tornare indietro
+del pie destro, accompagnandovi una punta, con la quale vi agiarete nell
+ sopradette guardie.
 
-Ma se per caso egli vi rispondesse di riverso per gamba; tirarete il pie manco appresso al dritto, e in uno istesso tempo li spingerete una punta per faccia. Potete oltra di ciò pasasre del pie dritto verso le sue parti manche, volgendogli un riverso sgualimbro su'l braccio destro: il che fatto ritornarete nelle guardie di cui si ragiona.
+Ma se per caso egli vi rispondesse di riverso per gamba; tirarete il pie manco
+appresso al dritto, e in uno istesso tempo li spingerete una punta per faccia.
+Potete oltra di ciò pasasre del pie dritto verso le sue parti manche,
+volgendogli un riverso sgualimbro su'l braccio destro: il che fatto ritornarete
+nelle guardie di cui si ragiona.
 
-Ma quando il nimico vi volesse ferire d'un'imbroccata nel petto, l'urtarete co'l fil dritto del pugnale verso le sue parti sinistre, e in quel tempo li volgerete per testa un riverso sopramano, facendo che'l pie destro segua il sinistro per di dietro. Appresso voi potete passare innanzi del pie dritto, e in tal passaggio parare la detta punta con un mandritto sgualimbro, offendendogli il petto d'una punta riversa, & per vostro riparo ritornerete il pie dritto indietro un passo, alzando tutto a un tempo amendue l'armi insieme a guardia di testa, & poi vi assetterete nelle guardie, di che parliamo.
+Ma quando il nimico vi volesse ferire d'un'imbroccata nel petto, l'urtarete co'l
+fil dritto del pugnale verso le sue parti sinistre, e in quel tempo li volgerete
+per testa un riverso sopramano, facendo che'l pie destro segua il sinistro per
+di dietro. Appresso voi potete passare innanzi del pie dritto, e in tal
+passaggio parare la detta punta con un mandritto sgualimbro, offendendogli il
+petto d'una punta riversa, & per vostro riparo ritornerete il pie dritto
+indietro un passo, alzando tutto a un tempo amendue l'armi insieme a guardia di
+testa, & poi vi assetterete nelle guardie, di che parliamo.
 
-Ma quando egli vi tirasse d'una punta sottomano, l'urtarete in fuori co'l pugnale, cioè verso le sue parti dritte, passando in quel tempo del pie destro innanzi, e spingendogli una stoccata per fianco, ò vero li volgerete un mandritto per testa, ò per gamba. In oltre potete nel passare, pararla co'l fil dritto della spada, & subito segarli di riverso per faccia, ò vero nel passare accompagnare il vostro fil dritto della spada con quella del nimico, e spingerli la punta nel petto. Si può ancora tirare il pie manco indietro un passo, et tutto a un tempo ferirli la mano della spada di mezzo mandritto, & subito ritornare alle guardie sudette: nelle quali credo che bene haverete inteso il modo del parare, & del ferir, essendo agiato in esse contra il vostro avversario.
+Ma quando egli vi tirasse d'una punta sottomano, l'urtarete in fuori co'l
+pugnale, cioè verso le sue parti dritte, passando in quel tempo del pie destro
+innanzi, e spingendogli una stoccata per fianco, ò vero li volgerete un
+mandritto per testa, ò per gamba. In oltre potete nel passare, pararla co'l fil
+dritto della spada, & subito segarli di riverso per faccia, ò vero nel passare
+accompagnare il vostro fil dritto della spada con quella del nimico, e spingerli
+la punta nel petto. Si può ancora tirare il pie manco indietro un passo, et
+tutto a un tempo ferirli la mano della spada di mezzo mandritto, & subito
+ritornare alle guardie sudette: nelle quali credo che bene haverete inteso il
+modo del parare, & del ferir, essendo agiato in esse contra il vostro
+avversario.
 
 **Lep.** Ho inteso benissimo. Seguite pure.
 
-**Gio.** Hora seguendo il ragionare delle altre guardie, dico; Che essendo voi con la spada in porta di ferro stretta, & co'l pugnale in coda lunga alta, contra il vostro nimico, & ch'egli vi tirasse di mandritto per testa; potete passare innanzi del pie manco, & pararlo co'l pugnale in guardia di testa, & tutto a un tempo spingerli una stoccata per il petto, ò vero nel parare, darli d'un riverso per coscia. Potete ancora come haverete parato co'l pugnale, volgerli d'un mandritto per gamba: il che fatto ritornerete il pie manco indietro un passo, insieme con l'armi accompagnate, & vi rimetterete alle guardie sopradette.
+**Gio.** Hora seguendo il ragionare delle altre guardie, dico; Che essendo voi
+con la spada in porta di ferro stretta, & co'l pugnale in coda lunga alta,
+contra il vostro nimico, & ch'egli vi tirasse di mandritto per testa; potete
+passare innanzi del pie manco, & pararlo co'l pugnale in guardia di testa, &
+tutto a un tempo spingerli una stoccata per il petto, ò vero nel parare, darli
+d'un riverso per coscia. Potete ancora come haverete parato co'l pugnale,
+volgerli d'un mandritto per gamba: il che fatto ritornerete il pie manco
+indietro un passo, insieme con l'armi accompagnate, & vi rimetterete alle
+guardie sopradette.
 
-Ma quando egli vi rispondesse di mandritto per gamba; tirerete il pie dritto appresso al manco, volgendogli un tramazzone per il braccio della spada, ò vero li spingerete la punta per il volto: & ciò fatto ritornerete alle vostre guardie.
+Ma quando egli vi rispondesse di mandritto per gamba; tirerete il pie dritto
+appresso al manco, volgendogli un tramazzone per il braccio della spada, ò vero
+li spingerete la punta per il volto: & ciò fatto ritornerete alle vostre
+guardie.
 
-Ma s'egli vi tirasse di riverso per testa, passarete innanzi del pie sinistro, & co'l pugnale andarete in guardia di testa a schermirvi, e in quel tempo li darete d'un riverso per gamba, ò di una punta nel petto. Oltra di questo nel passare innanzi del pie sinistro, lo potete urtar co'l fil dritto della spada, accompagnata dal pugnale, spingendogli la punta nella faccia. Si può ancora difenderlo con un riverso sgualimbro, passando tosto del destro piede innanzi, & ferirlo per fianco d'una punta sopramano, alzando subito il pugnale alla difesa della testa, il che fatto vi ridurrete all'usate guardie.
+Ma s'egli vi tirasse di riverso per testa, passarete innanzi del pie sinistro, &
+co'l pugnale andarete in guardia di testa a schermirvi, e in quel tempo li
+darete d'un riverso per gamba, ò di una punta nel petto. Oltra di questo nel
+passare innanzi del pie sinistro, lo potete urtar co'l fil dritto della spada,
+accompagnata dal pugnale, spingendogli la punta nella faccia. Si può ancora
+difenderlo con un riverso sgualimbro, passando tosto del destro piede innanzi, &
+ferirlo per fianco d'una punta sopramano, alzando subito il pugnale alla difesa
+della testa, il che fatto vi ridurrete all'usate guardie.
 
-Ma se per caso egli vi rispondesse di riverso per gamba; lo pararete con la spada d'un riverso ridoppio: indi subito crescerete innanzi del pie dritto, cacciandogli un'imbroccata per il volto. Potete ancora tirare la gamba indietro, e in quel tempo volgerli un dritto tramazzone per la mano della spada: & ciò fatto ritornare alle guardie di cui si ragiona. Ma se'l nimico vi spingesse d'una imbroccata per il petto, passerete del pie manco verso le sue parti dritte, e in questo passaggio l'urterete indentro co'l fil dritto del pugnale, volgendogli un riverso per testa; si che'l piede destro segua il sinistro per di dietro. Vi tornerà bene anco pararla co'l falso della spada, & volgerli un riverso per gamba, facendo che il pugnale vi guardi il capo. Oltra di ciò voi la potete parare co'l fil dritto della spada, & subito passare innanzi del pie destro, e spingerli la punta per il petto: il che fatto vi adatterete alle dette guardie.
+Ma se per caso egli vi rispondesse di riverso per gamba; lo pararete con la
+spada d'un riverso ridoppio: indi subito crescerete innanzi del pie dritto,
+cacciandogli un'imbroccata per il volto. Potete ancora tirare la gamba indietro,
+e in quel tempo volgerli un dritto tramazzone per la mano della spada: & ciò
+fatto ritornare alle guardie di cui si ragiona. Ma se'l nimico vi spingesse
+d'una imbroccata per il petto, passerete del pie manco verso le sue parti
+dritte, e in questo passaggio l'urterete indentro co'l fil dritto del pugnale,
+volgendogli un riverso per testa; si che'l piede destro segua il sinistro per di
+dietro. Vi tornerà bene anco pararla co'l falso della spada, & volgerli un
+riverso per gamba, facendo che il pugnale vi guardi il capo. Oltra di ciò voi la
+potete parare co'l fil dritto della spada, & subito passare innanzi del pie
+destro, e spingerli la punta per il petto: il che fatto vi adatterete alle dette
+guardie.
 
-Ma quando egli vi tirasse d'una stoccata per faccia, guiderete innanzi il pie manco, & la difenderete co'l fil dritto del pugnale, spingendola verso le parti sinistre del nimico, & nel medesimo tempo li volgerete d'un riverso per testa. Potete ancora scorrere innanzi del pie destro, & andare con la spada in compagnia del pugnale in guardia d'entrare, spingendogli in quel instante la punta nel volto, & ciò fatto ridurvi alle prenominate guardie: delle quali molte altre difese della spada si potrebbono addurre; mna per esser superflue, non starò a replicarle.
+Ma quando egli vi tirasse d'una stoccata per faccia, guiderete innanzi il pie
+manco, & la difenderete co'l fil dritto del pugnale, spingendola verso le parti
+sinistre del nimico, & nel medesimo tempo li volgerete d'un riverso per testa.
+Potete ancora scorrere innanzi del pie destro, & andare con la spada in
+compagnia del pugnale in guardia d'entrare, spingendogli in quel instante la
+punta nel volto, & ciò fatto ridurvi alle prenominate guardie: delle quali molte
+altre difese della spada si potrebbono addurre; mna per esser superflue, non
+starò a replicarle.
 
 **Lep.** Perché son superflue?
 
-**Gio.** Perché havendovi dimostrato nella spada sola la maniera del difendervi da tutti i colpi, che dal nimico possono esser tirati, e il modo d'offender lui: il che \(come vi dissi\) serve anco in queste altre, nelle quali voi ad ogni vostro commodo ve ne potete servire: però non accade per simil rispetto, ch'io ve le replichi: anzi seguendo il ragionar delle guardie, vengo a dirvi; Che ritrovandovi con la spada in cinchiale porta di ferro, & co'l pugnale a guardia di testa, & che'l nimico vi tirasse di mandritto per testa; voi potete passare innanzi del pie destro, & pararlo co'l pugnale, & tutto a un tempo spingerli per il petto una punta riversa, ò vero lo ferirete per testa d'un riverso sottobraccio. Potete ancora pararlo con l'armi accompagnate, passando subito del pie dritto innanzi, spingendogli un'imbroccata per il volto. Appresso potete passare innanzi del pie destro, & parare il detto colpo co'l fil dritto della spada, & ferirlo per fianco d'una punta sopramano: il che fatto ritornerete del pie dritto indietro un passo insieme con un dritto tramazzone, et vi fermerete nelle dette guardie.
+**Gio.** Perché havendovi dimostrato nella spada sola la maniera del difendervi
+da tutti i colpi, che dal nimico possono esser tirati, e il modo d'offender lui:
+il che \(come vi dissi\) serve anco in queste altre, nelle quali voi ad ogni
+vostro commodo ve ne potete servire: però non accade per simil rispetto, ch'io
+ve le replichi: anzi seguendo il ragionar delle guardie, vengo a dirvi; Che
+ritrovandovi con la spada in cinchiale porta di ferro, & co'l pugnale a guardia
+di testa, & che'l nimico vi tirasse di mandritto per testa; voi potete passare
+innanzi del pie destro, & pararlo co'l pugnale, & tutto a un tempo spingerli per
+il petto una punta riversa, ò vero lo ferirete per testa d'un riverso
+sottobraccio. Potete ancora pararlo con l'armi accompagnate, passando subito del
+pie dritto innanzi, spingendogli un'imbroccata per il volto. Appresso potete
+passare innanzi del pie destro, & parare il detto colpo co'l fil dritto della
+spada, & ferirlo per fianco d'una punta sopramano: il che fatto ritornerete del
+pie dritto indietro un passo insieme con un dritto tramazzone, et vi fermerete
+nelle dette guardie.
 
-Ma quando egli vi tirasse di mandritto per gamba, tirerete il pie manco alquanto indietro: & in quel tempo li spingerete la punta nella faccia, e incontinente ritornerete alle vostre guardie. Et se pure egli vi rispondesse di rvierso per testa, potete pararlo con la spada in guardia d'entrare, accompagnata dal pugnale, passando in quell'instante del pie destro innanzi, e spingendogli la punta nel volto. Potete ancora passare innanzi del pie dritto, & difenderlo con un riverso sgualimbro, & poi ferirlo d'una imbroccata per il petto, ò volgerli d'un riverso per testa, ò per gamba, ritornando tosto del pie dritto indietro con l'armi accompagnate a guardia di testa, et ciò fatto agiarvi alle predette guardie.
+Ma quando egli vi tirasse di mandritto per gamba, tirerete il pie manco alquanto
+indietro: & in quel tempo li spingerete la punta nella faccia, e incontinente
+ritornerete alle vostre guardie. Et se pure egli vi rispondesse di rvierso per
+testa, potete pararlo con la spada in guardia d'entrare, accompagnata dal
+pugnale, passando in quell'instante del pie destro innanzi, e spingendogli la
+punta nel volto. Potete ancora passare innanzi del pie dritto, & difenderlo con
+un riverso sgualimbro, & poi ferirlo d'una imbroccata per il petto, ò volgerli
+d'un riverso per testa, ò per gamba, ritornando tosto del pie dritto indietro
+con l'armi accompagnate a guardia di testa, et ciò fatto agiarvi alle predette
+guardie.
 
-Ma se per caso egli vi tirasse di riverso per gamba; potete scorrere innanzi del pie destro, e schermirvi con un riverso ridoppio, & cacciarli una punta per faccia. Di più potete tirare il pie manco indietro un passo, & nel medesimo tempo volgerli un tramazzone su'l braccio della spada: il che fatto v'assetterete nelle predette guardie.
+Ma se per caso egli vi tirasse di riverso per gamba; potete scorrere innanzi del
+pie destro, e schermirvi con un riverso ridoppio, & cacciarli una punta per
+faccia. Di più potete tirare il pie manco indietro un passo, & nel medesimo
+tempo volgerli un tramazzone su'l braccio della spada: il che fatto
+v'assetterete nelle predette guardie.
 
-Ma quando il nimico vi spingesse per il petto d'una punta sopramano, l'urterete co'l fil dritto del pugnale verso le sue parti manche senza passeggiamento alcuno, volgendogli tutto a un tempo per testa un riverso sopramano, facendo che'l pie dritto segua il manco per di dietro. Si può anco pararla co'l falso della spada, e in un tempo stesso passare innanzi del pie destro, volgendoli un riverso per gamba: & ciò fatto ritornare il pie destro indietro un passo insieme con una punta accompagnata dal pugnale, con la quale vi ridurrete alle guardie di cui si ragiona.
+Ma quando il nimico vi spingesse per il petto d'una punta sopramano, l'urterete
+co'l fil dritto del pugnale verso le sue parti manche senza passeggiamento
+alcuno, volgendogli tutto a un tempo per testa un riverso sopramano, facendo
+che'l pie dritto segua il manco per di dietro. Si può anco pararla co'l falso
+della spada, e in un tempo stesso passare innanzi del pie destro, volgendoli un
+riverso per gamba: & ciò fatto ritornare il pie destro indietro un passo insieme
+con una punta accompagnata dal pugnale, con la quale vi ridurrete alle guardie
+di cui si ragiona.
 
-Ma s'egli vi spingesse una stoccata per faccia; la schiferete co'l fil dritto della spada, passando del pie destro innanzi, spingendogli la punta per il petto, ò vero subito c'haverete parato, li volgerete di riverso per gamba. Si potrà etiamdio nel passare del piede, porre il forte del fil dritto della vostra spada, accompagnata dal pugnale nella detta stoccata, e spingerli tutto a un tempo la punta nella faccia. Di più si può pararla co'l pugnale, & segarli di riverso per coscia, & subito ritornare alle usate guardie. Et questi sono gli schermi, che far si possono, ritrovandovi in queste guardie, di che v'habbiamo hora parlato.
+Ma s'egli vi spingesse una stoccata per faccia; la schiferete co'l fil dritto
+della spada, passando del pie destro innanzi, spingendogli la punta per il
+petto, ò vero subito c'haverete parato, li volgerete di riverso per gamba. Si
+potrà etiamdio nel passare del piede, porre il forte del fil dritto della vostra
+spada, accompagnata dal pugnale nella detta stoccata, e spingerli tutto a un
+tempo la punta nella faccia. Di più si può pararla co'l pugnale, & segarli di
+riverso per coscia, & subito ritornare alle usate guardie. Et questi sono gli
+schermi, che far si possono, ritrovandovi in queste guardie, di che v'habbiamo
+hora parlato.
 
-Ci resta al presente da ragionare della guardia d'alicorno co'l destro piede innanzi: nella quale essendo fermo con la spada, & co'l pugnale in cinghiale porta di ferro, & che'l vostro nimico vi volesse ferire d'un mandritto per testa; potete passare innanzi del pie manco, & alzare il pugnale in guardia di testa, co'l quale vi schermirete da esso: ma nel medesimo tempo gli volgerete un mandritto per testa, ò per gamba, ò vero gli spingerete la punta per il petto. Si può ancora mentre ch'egli tira il detto mandritto, passare innanzi del pie destro, & darli d'un mandritto sgualimbro per la mano della spada: ma ciò fatto vi rimetterete alle guardie sopradette.
+Ci resta al presente da ragionare della guardia d'alicorno co'l destro piede
+innanzi: nella quale essendo fermo con la spada, & co'l pugnale in cinghiale
+porta di ferro, & che'l vostro nimico vi volesse ferire d'un mandritto per
+testa; potete passare innanzi del pie manco, & alzare il pugnale in guardia di
+testa, co'l quale vi schermirete da esso: ma nel medesimo tempo gli volgerete un
+mandritto per testa, ò per gamba, ò vero gli spingerete la punta per il petto.
+Si può ancora mentre ch'egli tira il detto mandritto, passare innanzi del pie
+destro, & darli d'un mandritto sgualimbro per la mano della spada: ma ciò fatto
+vi rimetterete alle guardie sopradette.
 
-Et quando pure egli vi tirasse di mandritto per gamba; tirarete il pie destro indietro un passo, spingendoli un'imbroccata per il volto, ò vero li volgerete un mandritto al destro braccio: il che fatto vi ridurrete alle vostre guardie.
+Et quando pure egli vi tirasse di mandritto per gamba; tirarete il pie destro
+indietro un passo, spingendoli un'imbroccata per il volto, ò vero li volgerete
+un mandritto al destro braccio: il che fatto vi ridurrete alle vostre guardie.
 
-Ma s'egli vi rispondesse di riverso per testa, tirerete il pie manco dietro al dritto, e in tal tempo vi schermirete con la spada nella medesima guardia: indi subito crescerete innanzi del pie dritto, spingendogli la punta per il petto, & facendo che'l pugnale si trovi alla difesa della testa. Potete ancora passare innanzi del pie manco, & pararlo co'l pugnale, & subito ferirlo d'un mandritto per gamba: il che fatto, ritornerete alle guardie di cui si ragiona.
+Ma s'egli vi rispondesse di riverso per testa, tirerete il pie manco dietro al
+dritto, e in tal tempo vi schermirete con la spada nella medesima guardia: indi
+subito crescerete innanzi del pie dritto, spingendogli la punta per il petto, &
+facendo che'l pugnale si trovi alla difesa della testa. Potete ancora passare
+innanzi del pie manco, & pararlo co'l pugnale, & subito ferirlo d'un mandritto
+per gamba: il che fatto, ritornerete alle guardie di cui si ragiona.
 
-Ma se'l nimico vi volgesse di riverso per gamba, tirerete il pie dritto indietro, cacciandogli un'imbroccata per faccia, ò vero li volgerete d'un mandritto per la mano della spada: & ciò fatto ritornerete alle usate guardie dette.
+Ma se'l nimico vi volgesse di riverso per gamba, tirerete il pie dritto
+indietro, cacciandogli un'imbroccata per faccia, ò vero li volgerete d'un
+mandritto per la mano della spada: & ciò fatto ritornerete alle usate guardie
+dette.
 
-Ma quando egli vi spingesse d'una punta sopramano; la potete parare con mezzo mandritto, & subito segarli d'un riverso tondo, facendo che'l pie manco spinga il destro innanzi: dopo che vi ridurrete similmente alle dette guardie.
+Ma quando egli vi spingesse d'una punta sopramano; la potete parare con mezzo
+mandritto, & subito segarli d'un riverso tondo, facendo che'l pie manco spinga
+il destro innanzi: dopo che vi ridurrete similmente alle dette guardie.
 
-Ma s'egli vi tirasse d'una stoccata per faccia, l'urtarete co'l pugnale verso le sue parti destre, tirando in quel tempo il pie manco appresso al dritto, & subito crescerete del dritto innanzi, spingendogli la punta per fianc: ò vero li volgerete d'un mandritto per gamba. Si può appresso pararla con mezzo mandritto sgualimbro, & ferirlo nel petto d'una punta riversa: & dopo questo ritornare alle sopradette guardie.
+Ma s'egli vi tirasse d'una stoccata per faccia, l'urtarete co'l pugnale verso le
+sue parti destre, tirando in quel tempo il pie manco appresso al dritto, &
+subito crescerete del dritto innanzi, spingendogli la punta per fianc: ò vero li
+volgerete d'un mandritto per gamba. Si può appresso pararla con mezzo mandritto
+sgualimbro, & ferirlo nel petto d'una punta riversa: & dopo questo ritornare
+alle sopradette guardie.
 
-**Lep.** Questa guardia d'alicorno, non si può ancor fare co'l manco piede innanzi?
+**Lep.** Questa guardia d'alicorno, non si può ancor fare co'l manco piede
+innanzi?
 
-**Gio.** Si può: perché la denominazione non si prende da'piedi, ma dall'agitatione della spada.
+**Gio.** Si può: perché la denominazione non si prende da'piedi, ma
+dall'agitatione della spada.
 
-**Lep.** Havrei ancor caro d'intendere gli schermi, che si ponno fare, quando io mi ritrovassi in detta guardia co'l pie manco innanzi.
+**Lep.** Havrei ancor caro d'intendere gli schermi, che si ponno fare, quando io
+mi ritrovassi in detta guardia co'l pie manco innanzi.
 
-**Gio.** Ve li dirò volentieri. Ogni volta dunque che vi troverete con la spada in detta guardia, & co'l pugnale in porta di ferro alta contra il vostro nimico, & ch'egli vi tirasse di mandritto per testa; potete urtarlo in fuori co'l pugnale, & subito passare innanzi del pie destro, e spingerli una imbroccata per il petto, ò vero darli d'un mandritto per testa, ò per gamba: & ciò fatto ritornare alle guardie sopradette.
+**Gio.** Ve li dirò volentieri. Ogni volta dunque che vi troverete con la spada
+in detta guardia, & co'l pugnale in porta di ferro alta contra il vostro nimico,
+& ch'egli vi tirasse di mandritto per testa; potete urtarlo in fuori co'l
+pugnale, & subito passare innanzi del pie destro, e spingerli una imbroccata per
+il petto, ò vero darli d'un mandritto per testa, ò per gamba: & ciò fatto
+ritornare alle guardie sopradette.
 
-Ma quando egli vi rispondesse d'un mandritto per gamba; lo pararete co'l pugnale, chinando la punta di esso verso terra: indi subito crescerete innanzi del pie dritto, cacciandoli per il volto una punta sopramano: & poi ridurvi all'istesse guardie.
+Ma quando egli vi rispondesse d'un mandritto per gamba; lo pararete co'l
+pugnale, chinando la punta di esso verso terra: indi subito crescerete innanzi
+del pie dritto, cacciandoli per il volto una punta sopramano: & poi ridurvi
+all'istesse guardie.
 
-Ma quando il nimico vi spingesse un'imbroccata per il volto; l'urtarete in fuori co'l pugnale, e in tal tempo passerete del pie destro verso le sue parti manche, & lo ferirete d'una simil punta per fianco, facendo che'l pie manco segua il destro: ò vero nel passare del piede, potete volgerli un mandritto per gamba. Vi sarà etiamdio commodo urtarla co'l pugnale verso le sue parti sinistre, e in un medesimo tempo spingerli la punta nel volto, ò volgerli per testa d'un riverso sopramano, si che'l pie destro segua il sinistro per di dietro: & ciò fatto ritornare del piede all'indietro insieme con un riverso di sotto in sù: il quale si fermerà nelle guardie sopradette.
+Ma quando il nimico vi spingesse un'imbroccata per il volto; l'urtarete in fuori
+co'l pugnale, e in tal tempo passerete del pie destro verso le sue parti manche,
+& lo ferirete d'una simil punta per fianco, facendo che'l pie manco segua il
+destro: ò vero nel passare del piede, potete volgerli un mandritto per gamba. Vi
+sarà etiamdio commodo urtarla co'l pugnale verso le sue parti sinistre, e in un
+medesimo tempo spingerli la punta nel volto, ò volgerli per testa d'un riverso
+sopramano, si che'l pie destro segua il sinistro per di dietro: & ciò fatto
+ritornare del piede all'indietro insieme con un riverso di sotto in sù: il quale
+si fermerà nelle guardie sopradette.
 
-Ma s'egli vi tirasse d'una stoccata per faccia; la pararete in fuori co'l piatto del pugnale, e in tal tempo crescerete innanzi del pie destro, spingendogli un'imbroccata per il petto, ò li darete d'un mandritto per testa, ò per gamba. Potete ancora come vedrete venir quella punta; passare del pie dritto verso le parti manche del nimico, e spingerli per fianco una punta sopramano: & per vostro schermo tornare del pie destro indietro un passo, accompagnato da una stoccata per sotto il pugnale, & agiarvi nelle guardie di cui si ragiona: delle quali haverete inteso la maniera dello schermirvi da'mandritti riversi, & dalle punte si da alto, come da basso, ritrovandovi con la spada & co'l pugnale in qual si voglia guadie di sopra nominate. Et perché hò sempre tenuto una regola ferma nel ragionare di esse, hor ne voglio ragionare variatamente.
+Ma s'egli vi tirasse d'una stoccata per faccia; la pararete in fuori co'l piatto
+del pugnale, e in tal tempo crescerete innanzi del pie destro, spingendogli
+un'imbroccata per il petto, ò li darete d'un mandritto per testa, ò per gamba.
+Potete ancora come vedrete venir quella punta; passare del pie dritto verso le
+parti manche del nimico, e spingerli per fianco una punta sopramano: & per
+vostro schermo tornare del pie destro indietro un passo, accompagnato da una
+stoccata per sotto il pugnale, & agiarvi nelle guardie di cui si ragiona: delle
+quali haverete inteso la maniera dello schermirvi da'mandritti riversi, & dalle
+punte si da alto, come da basso, ritrovandovi con la spada & co'l pugnale in
+qual si voglia guadie di sopra nominate. Et perché hò sempre tenuto una regola
+ferma nel ragionare di esse, hor ne voglio ragionare variatamente.
 
 **Lep.** Questo ancora mi sarà sommamente caro.
 
