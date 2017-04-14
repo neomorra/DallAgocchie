@@ -694,5 +694,75 @@ la faccia: & questi sono i suoi contrarij.
 ###### Quinto modo di provocare & offendere. {#quinta}
 
 Hor venendo alla quinta maniera di provocare il nimico, essendo amendue con la
-spada in guardia d'alicorno co'l pie dritto innanzi, & co'pugnali
+spada in guardia d'alicorno co'l pie dritto innanzi, & co'pugnali in cinghiale
+porta di ferro: dico che voi potete spingerli una imbroccata per la man del
+pugnale, & accompagnarla con un dritto tramazzone: co'l quale vi fermerete in
+porta di ferro stretta, & co'l pugnale in coda lunga alta, ò vero nello
+spingere la deta imbroccata, tirarete il pie dritto indietro un passo, & la
+spada resterà in cinchiale porta di ferro, & il pugnale a guardia di testa.
+
+Potete ancora far cenno di spngerli la punta sopramano: ma però li volgerete
+un mandritto per la manca mano; il quale calerà in porta di ferro larga,
+alzando il pugnale alla difesa del capo: & questa è la maniera di provocare il
+nimico, ritrovandovi nelle due guardie nominate di sopra.
+
+**Lep.** Queste provocationi a me pare, che altro non siano, che mutatione di
+guardie.
+
+**Gio.**E vero: perché in queste due guardie d'alicorno; altro non si può fare
+per provocare il nimico, che astringerlo & farli delle finte, ò vero fare
+delle mutationi di guardie, acciò ch'egli habbia cagione di moversi, ò di
+rispondere.
+
+Ma notate i contrarij alle predette provocationi: de i quali il primo è, che
+quando egli spingesse l'imbroccata, voi passerete del manco piede verso le
+parti dritte del nimico, e in questo passagio allargherete alquano il braccio
+sinistro, & co'l pugnale indentro l'urtarete; ma nel medesimo tempo li
+volgerete per testa un riverso sopramano, co'l quale vi fermerete in coda lunga
+alta, & co'l pugnale in porta di ferro. 
+
+Secondo. Quando egli tirerà il pie dritto all'indietro, e spingerà la punta
+sopramano, voi potete finger di risponderli: et s'egli venisse alla finta, voi
+lo potreste ferire dove vi tornasse più commodo.
+
+Terzo. In quel ch'ei farà vista di spingervi l'imbroccata; voi non vi
+moverete: ma quando egli volgerà il mandritto sgualimbro per la man della
+spada, il quale calerà in cinghiale porta di ferro, & co'l pugnale andarete in
+guardia di testa.
+
+Et questi sono i contrarij alle predette provocationi. Hor ci resta il ragionare
+della sesta, & ultima guardia: la quale è quella d'alicorno, co'l pie sinistro
+innanzi, & poi voglio che diamo luogo.
+
+**Lep.** Mi rimetto al voler vostro.
+
+**Gio.** Ritrovandovi dunque co'l vostro nimico in detta guardia, & co'l pugnale
+in porta di ferro alta, et essendo voi il provocatore; potete raccogliere il pie
+dritto appresso al manco: indi scorrere co'l medesimo alquanto innanzi: che
+trovandosi il nimico così astretto; li converà, ò tirare, ò ritirarsi indietro.
+
+Ma voglio che poniamo caso ch'egli tirasse di taglio, ò di punta, dalle parti
+di sopra; voi col pugnale vi schermirete, & in quel tempo passerete innanzi del
+pie destro, spingendogli un'imbroccata per il petto, ò vero nel passare del
+piede, potete far cenno di spingerli la punta per faccia, & tutto à un tempo
+volgerli d'un mandritto per gamba, il quale calerà in porta di ferro, & il
+pugnale anderà alla diffesa della testa. Et hora farò fine.
+
+**Lep.** Non volete prima dirmi i suoi contrarij?
+
+**Go.** Si voglio. Il contrario è, che quando egli scorrerà del piede per
+astrigervi; voi subito guidarete il pie destro verso le se sinistre parti,
+spingendogli  la punta della spada nella manca mano, con la quale vi fermerete
+in porta di ferro alta.
+
+Ma s'egli fingesse di spingervi l'imbroccata, non farete mossa: ma ome egli
+volgerà il mandritto per gamba, tirerete il pie manco indietro un passo,
+percotendogli in quell'istante di mezzo mandritto la detta mano.
+
+Et così co'l divino aiuto haveremo dato fine al ragionamento della spada
+accompagnata co'l pugnale. Ma perché è apunto l'hora di andare a vedere la
+giostra, v'invito per domani a ragionare sopra la spada & la cappa.
+
+**Lep.** Andiamo, & accetto l'invito  per domani, per saper il modo di valersi
+di spada & cappa: cosa da me molto desiderata.
 
