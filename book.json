@@ -2,6 +2,6 @@
     "pdf": {
         "fontFamily":"Palatino",
         "paperSize": "a5",
-        "fontSize": "8"
+        "fontSize": "9"
     }
 }
