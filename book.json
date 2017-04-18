@@ -1,7 +1,7 @@
 {
     "pdf": {
         "fontFamily":"Palatino",
-        "paperSize": "a4",
-        "fontSize": "11"
+        "paperSize": "a5",
+        "fontSize": "8"
     }
 }
