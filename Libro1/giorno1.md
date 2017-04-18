@@ -214,7 +214,9 @@ Ma alcuni Maestri di quest'arte a mal
 fine l'indirizzano: percioché non sapendo che la Theorica, & la prattica siano
 diverse; come prima posseggono un poco di prattica, si mettono ad insegnare: Il
 che solo procede, perché è andata in oblivione quell'antica usanza della
-creatione de' Maestri. Et sappiate, che da non molto tempo indietro, si come
+creatione de' Maestri.
+
+Et sappiate, che da non molto tempo indietro, si come
 dovendosi inviare alcuno all'eccellente grado del dottorato; prima se ne fa con
 diligente esamine il saggio, & poi come è giudicato sofficiente, se gli dà il
 privilegio; Così ancora ne' Maestri di schermire si osservava: imperò che prima
@@ -340,7 +342,9 @@ ordine, che delle guardie, facciate mentione.
 **Gio.** Hor venendo alle guardie, dico: Che assai ce ne sono, si da basso, come
 da alto: mà le più importanti sono otto, quattro da alto, & quattro da basso. Da
 basso due se ne fanno co'l piede destro innanzi, & due co'l sinistro: & hanno
-due nome, cioè coda lunga, & porta di ferro. Coda lunga sarà, quando si tiene la
+due nome, cioè coda lunga, & porta di ferro.
+
+Coda lunga sarà, quando si tiene la
 spada fuori dalle parti dritte: la quale in due altre guardie si divide: una
 delle quali coda lunga stretta si chiamerà, & l'altra alta. Coda lunga stretta è
 quella, che si fa co'l pie dritto innanzi: & coda lunga alta co'l pie manco,
@@ -356,10 +360,13 @@ bisogna da questa guardia guardarsi, perché hà la coda lunga.
 La seconda è detta porta di ferro, a similitudine d'una porta di ferro, che a
 volerla atterrare ci vole fatica, & arte assai. Così a ferire chi sia posto in
 questa guardia; bisogna arte & ingegno. Questa similmente si divide in due
-nature, l'una detta porta di ferro, & l'altra cinghiale. Porta di ferro la prima
+nature, l'una detta porta di ferro, & l'altra cinghiale.
+
+Porta di ferro la prima
 si conosce, quando si è col destro piede innanzi, & che la spada sia col pugno
-pari al ginocchio per di dentro, & la punta della spada guardi il nimico. Mà
-cinghial porta di ferro sarà, quando si è col piede sinistro innanzi, & per
+pari al ginocchio per di dentro, & la punta della spada guardi il nimico.
+
+Mà cinghial porta di ferro sarà, quando si è col piede sinistro innanzi, & per
 traverso, cioè verso le vostre parti manche, & che'l pugno della spada sia
 presso al ginocchio sinistro per di dentro, & la spalla destra guardi il nimico.
 Così la dimandarono dalla comparatione del Cinghiale, o diciamo Porco selvatico:
@@ -382,13 +389,14 @@ Ogni volta che haverete il pie dritto
 innanzi un passo, il quale non sia grande ne piccolo, ma proportionato co'l
 pugno della spada di dentro, & appresso il ginocchio destro, & che la punta di
 essa insieme con la spalla dritta guardi il nimico, questa si chiamerà porta di
-ferro stretta: & fù detta stretta per esser guardia molto sicura. Ma se vi
-discosterete col pugno alquanto dal ginocchio verso le vostre parti manche,
-chinando un poco lapunta verso terra; si domanderà porta di ferro larga: perché
-fa della persona maggiore scoperta: & essendo in porta di ferro larga, se
-alquanto alzerete il pugno della spada; questa sarà porta di ferro alta, per
-essere più alta dell'altre due. Et questo che di porta di ferro si è detto,
-parimente si puo dire della guardia di cinghiale porta di ferro.
+ferro stretta: & fù detta stretta per esser guardia molto sicura.
+
+Ma se vi discosterete col pugno alquanto dal ginocchio verso le vostre parti
+manche, chinando un poco la punta verso terra; si domanderà porta di ferro
+larga: perché fa della persona maggiore scoperta: & essendo in porta di ferro
+larga, se alquanto alzerete il pugno della spada; questa sarà porta di ferro
+alta, per essere più alta dell'altre due. Et questo che di porta di ferro si è
+detto, parimente si puo dire della guardia di cinghiale porta di ferro.
 
 ###### Coda lunga di tre nature. {#nature_coda}
 
@@ -396,12 +404,18 @@ Ora io dissi di sopra, che la guardia di coda lunga ancor si divide in tre
 nature. La prima si fa co'l piede destro innanzi verso le vostre parti dritte,
 & che'l pugno della spada sia di fuori, & presso al ginocchio destro, & che la 
 punta & la persona guardi il nimico: & è detta coda lunga stretta, per esser
-ancor essa guardia stretta, & molto sicura. La seconda sarà, che essendo in coda
+ancor essa guardia stretta, & molto sicura.
+
+La seconda sarà, che essendo in coda
 lunga stretta, ritirando alquanto il pugno, % la spada indietro, & tenendo la
 punta bassa, dimanderassi coda lunga larga; così detta perché la spada più dal
-nimico si allontana. Terza essendo in coda lunga larga, voltando la punta della
+nimico si allontana.
+
+Terza essendo in coda lunga larga, voltando la punta della
 spada indietro; si chamerà coda lunga distesa: & perché la spada si distende di
-dietro; pigliò questo nome ancora di coda lunga. Co'l pie manco innanzi si
+dietro; pigliò questo nome ancora di coda lunga.
+
+Co'l pie manco innanzi si
 possono fare tre guardie, cioè coda lunga alta, coda lunga larga, & coda lunga
 distesa: & queste son così chiamate per le ragioni sopradette.
 
@@ -415,32 +429,44 @@ gentilezza: però seguite il ragionare dell'altre
 conosce quando l'impugnatura della spada è volta all'in giù, e il braccio ben
 distesso, & la punta alquanto bassa, che guardi il volto, o il petto del nimico,
 a similitudine dell'Alicorno: il quale essendo assalito, combatte a quella guisa
-co'l suo corno. La seconda si domanderà guardia di testa: la quale è quando si
+co'l suo corno.
+
+La seconda si domanderà guardia di testa: la quale è quando si
 tiene il braccio ben disteso per il dritto del volto del nimico, & la spada alla
 traversa, cioè che la punta di essa vada verso le vostre parti manche, &
-alquanto verso terra: & è così detta, perché assicura le parti di sopra. La
-terza si dice guardia di faccia: & si conosce, quando il braccio è ben disteso,
-& il dritto della mano stà volto all'in sù, & ch'el fil dritto della spada
-guarda in dentro, cioè verso le parti sinistre, & la punta insieme co'l fianco
-destro debbe guardare verso la faccia del nimico. questa è così detta, perché
-guarda il volto benissimo. La quarta si chiamerà guardia d'entrare: la quale si
+alquanto verso terra: & è così detta, perché assicura le parti di sopra.
+
+La terza si dice guardia di faccia: & si conosce, quando il braccio è ben
+disteso, & il dritto della mano stà volto all'insù, & ch'el fil dritto della
+spada guarda in dentro, cioè verso le parti sinistre, & la punta insieme co'l
+fianco destro debbe guardare verso la faccia del nimico. questa è così detta,
+perché guarda il volto benissimo.
+
+La quarta si chiamerà guardia d'entrare: la quale si
 fa per il contrario della sopra detta, cioè, si tiene il braccio & la spada
 distesi, pur verso il volto del nimico: ma il dritto della mano guarderà
 all'ingiù, & il fil dritto della spada ha da guardare in fuori, cioè verso le
 parti destre; & la persona debbe stare alquanto con le parti dritte, volte verso
 l'avversario: & è così chiamata, percioché è guardia fortissima per entrare.
+
 Queste quattro guardie si posson fare in due modi, ò col destro, ò co'l sinistro
 piede innanzi. & questo è quanto al terzo capo.
 
 **Lep.** Hora vorrei sapere, se da alto vi sono oltra queste altre guardie, 
 che siano in uso: delle quali poteste far mentione?
 
-**Gio.** Tre ne son restate, delle quali, accio c'habbiate notitia di tutte, ho
-pensato volervi ragionare. La prima si chiama guardia alta, & si conosce, quando
+**Gio.** Tre ne son restate, delle quali, acciò c'habbiate notitia di tutte, ho
+pensato volervi ragionare.
+
+La prima si chiama guardia alta, & si conosce, quando
 l'impugnatura della spada guarda all'insù co'l braccio ben disteso, & la punta
 stia volta all'indietro: & così è chiamata per esser la più alta che si possa
-fare. La seconda si fa con la spada sopra il braccio sinistro, Et la terza di
-sotto, facendo che la punta guardi di dietro: & ritengono il medesimo nome. Ma
+fare.
+
+La seconda si fa con la spada sopra il braccio sinistro, Et la terza di
+sotto, facendo che la punta guardi di dietro: & ritengono il medesimo nome.
+
+Ma
 havendo già bastanza trattato delle guardie; in questo quarto capo, ragioneremo
 del passeggiare in esse, 
 
@@ -467,10 +493,13 @@ aspetto che da voi mi sia dato cognitione.
 **Gio.** Con ragione & arte si passeggia, & si và a ritrovare l'avversario in
 tutte le guardie: & questo far si può con l'uno & con l'altro piede cominciando,
 così per traverso, come spingendo un piede l'altro innanzi, secondo il tempo, &
-il bisogno. Nondimeno il passeggiare co'l passo ne grande, ne picciolo, è di
+il bisogno.
+
+Nondimeno il passeggiare co'l passo ne grande, ne picciolo, è di
 maggior utilità: perché così si può & crescere innanzi, & ritornare indietro
-senza discomodo della persona, accompagnando sempre la mano co'l piede. Mà
-bisogna avvertire, che quella gamba, che sarà dinanzi; debbe stare un poco
+senza discomodo della persona, accompagnando sempre la mano co'l piede.
+
+Mà bisogna avvertire, che quella gamba, che sarà dinanzi; debbe stare un poco
 piegata nel ginocchio, & il piede di essa debbe stare dritto verso il nimico, &
 la gamba che sarà di dietro starà un poco curva, & col piede alquanto di
 traverso; in maniera che ogni movimento sia piedo di gratia. & questo è quanto
@@ -490,16 +519,24 @@ la spada in coda lunga stretta, & di qui passerete co'l pie sinistro innanzi
 verso le vostre manche parti, facendo in quell'istante falso, & mandritto
 sgualimbro, & la spada calerà in cinghiale porta di ferro: & poi andarete co'l
 pie destro innanzi un passo, & in tal tempo volgerete un dritto trammazzone: il
-quale si fermerà in porta di ferro stretta. Indi crescerete innanzi co'l manco
+quale si fermerà in porta di ferro stretta.
+
+Indi crescerete innanzi co'l manco
 piede, facendo falso, & riverso sgualimbro, & la spada anderà in coda lunga 
 alta. Poi passerete del destro piede innanzi, & nel medesimo tempo volgerete un
 riverso ridoppio, fermando la spada in guardia d'alicorno, & essendo fermo nella
 detta guardia spingerete un'imbroccata senza passeggiamento alcuno, & la spada
-si fermerà in porta di ferro stretta. Di qui ritirerete il pie dritto in dietro
+si fermerà in porta di ferro stretta.
+
+Di qui ritirerete il pie dritto in dietro
 un passo, & tutto a un tempo farete falso, & riverso sgualimbro, & la spada
-ritornerà in coda lunga alta. Poi trarrete il manco piede indietro, & all'hora
+ritornerà in coda lunga alta.
+
+Poi trarrete il manco piede indietro, & all'hora
 volgerete un mandritto tramazzone: il quale si fermerà in porta di ferro
-stretta. Indi ritornerete il pie destro indietro un passo, volgendo in quel
+stretta.
+
+Indi ritornerete il pie destro indietro un passo, volgendo in quel
 tempo un dritto tramazzone, co'l quale calerete in cinghiale porta di ferro, &
 di qui ritirarete indietro il pie sinistro, facendo in quell'instante falso &
 riverso sgualimbro, & la spada ritornerà in coda lunga stretta, & così sarete
