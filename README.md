@@ -1,8 +1,17 @@
 # Note sul progetto
 
-trascrizione di "dell'arte di scrimia" di Giovanni dall'Agocchie intrapresa per familiarizzare con lo strumento github/gitbook e rendere al contempo più agevole la mia consultazione del trattato stesso. 
-Le scelte di trascrizione sono completamente arbitrarie; ho aggiunto accenti dove mancavano e corretto i vari `qual'è` in `qual è` ma per il resto \(apostrofi, virgole, acca e ij a indicare `i` lunghe in finale di parola\) sono rimaste come nella copia che ho per consultazione. 
+Questa trascrizione di "Dell'arte di scrimia" di Giovanni dall'Agocchie è stata fatta per agevolare lo studio del trattato stesso. Mi sono pertanto preso qualche libertà nella trascrizione dello stesso effettuando scelte trascrittive che agevolassero la lettura e l'eventuale copiatura del testo per utilizzo in eventuali dispense.
 
-##### **NB** 
-è mia intenzione trascrivere, per un primo momento, solamente il primo libro dei 3 componenti il trattato, a maggior ragione per il fatto che la copia a mia disposizione è composta solamente dai primi due libri, di cui il secondo solo parziale e mancante completamente del terzo libro. Avendo tempo e una copia completa in futuro potrei intraprendere la trascrizione delle restanti parti.
+Le maggiori libertà che mi sono prese sono state nell'inserire paragrafi nei discorsi più lunghi, o nelle descrizioni delle tecniche e delle azioni, sempre comunque rispettando la punteggiatura originale (dato che il testo è privo di "a capo"). 
+Altre differenze degne di piccola nota sono le aggiunte di accenti dove mancano e modificato i vari `qual'è` in `qual è` ma per il resto \(apostrofi, virgole, acca e ij a indicare `i` lunghe in finale di parola\) sono rimaste come nella copia che ho per consultazione. 
 
+L'originale utilizzato per la trascrizione è [questa copia in Google Books](#https://play.google.com/books/reader?printsec=frontcover&output=reader&id=-1iYkwFdoboC&pg=GBS.PP5)
+
+##### NB
+La trascrizione comprende solamente il primo libro del trattato, ovvero "Dell'arte dello schermire"; i successivi due libri, rispettivamente "Della giostra" e "Dell'ordinar battaglie" non sono, alla scrittura di questo testo, in piano di trascrizione.
+
+##### Utilizzo
+ 
+Chiunque abbia interesse nello studiare il materiale qui trascritto è libero di copiarlo in tutto o in parte, possibilmente citando la fonte (ma non è un vincolo stringente, se ci riuscite bene, altrimenti pazienza) vi chiedo solo di non spacciarlo come vostro lavoro. Quello che non potete fare è opere di lucro derivate da questa trascrizione, senza un esplicita richiesta all'autore (dubito che qualcuno ne abbia l'intenzione ma meglio prudenti che dolenti :) )
+
+Per qualsiasi suggerimento, trovate un modo per raggiungermi :D
