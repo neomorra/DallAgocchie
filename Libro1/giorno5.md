@@ -323,7 +323,7 @@ d'un riverso per testa, o li spingerete la punta per il petto.
 
 Si può etiamdio passare del pie manco verso le sue parti dritte, & urtare la
 detta punta con la cappa, volgendogli per testa un riverso sopramano: il che
-fatto andarete alla rpedetta guardia.
+fatto andarete alla predetta guardia.
 
 Ma quando il nimico vi tirasse d'una stoccata per darvi nel petto, l'urtarete in
 fuori con la cappa, tirando il pie manco appresso al dritto: indi subito
