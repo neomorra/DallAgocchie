@@ -109,7 +109,7 @@ perciò non vi avendo luogo la prudenza, anzi non vi essendo stimata; le più
 volte avviene ancora, che quest'arte, che tutta è sù la prudenza fermata, &
 fondata; in poca stima esser si vede.
 
-**Lep.** La vostra risoluzione assai mi piace: nondimeno non mi leva al tutto 
+**Lep.** La vostra risoluzione assai mi piace: nondimeno non mi leva al tutto
 ogni difficoltà dell'animo; percioché alle volte habbiamo veduto persone
 inesperte, & senza pratica ò cognitione alcuna dello schermire, combattendo
 haver superato, & vinto quelli c'havevan questo per particolare essercitio. Onde
@@ -127,28 +127,28 @@ vili: & all'hora cessano di essere schermitori, tosto che son offesi.
 
 Perché molte parti si ricercano al buono schermitore, & assai più à chi si
 conduce a combattere: Come a dire, ragione, animosità, forza, destrezza,
-scientia, giudicio, & prattica. Et oltre queste & altre tali, sopra tutto 
+scientia, giudicio, & prattica. Et oltre queste & altre tali, sopra tutto
 v'interviene il divin giudicio, a noi del tutto secreto & occulto.
 
 **Lep.** Da questa vostra conclusione, mi par che nasca la confusione del vostro
 detto: Perché ogni pvolta che il combattente sarà agile, & coraggioso, &
 prenderà impresa giusta a diffinire; sarà vincitore: & per lo contrario
-perditore. Onde seguirà perciò l'arte non esser necessaria. 
+perditore. Onde seguirà perciò l'arte non esser necessaria.
 
 **Gio.** Piano, Meser Lepido: perché i termini, ne' quali la risposta mia
 procede, vi daranno a conoscere l'arte esser necessaria. Lasciando dunque da
 parte come caso speciale, ch'alcuna volta Iddio il contrario permetta; vi dico
-per regola infallibile, che ciascuno può rinuntiare al favore per lui 
+per regola infallibile, che ciascuno può rinuntiare al favore per lui
 introdotto; & che Iddio ci ha dato l'ingegno di conoscere il bene e il male. Il
-che così essendo come è; sarà ancora chiaro, che se uno non si vorrà difendere, 
+che così essendo come è; sarà ancora chiaro, che se uno non si vorrà difendere,
 ne porsi in opera; ne resterà perditore, ancor che la ragione per lui havesse:
 percioché al favor suo viene a rinunciare: & di ciò deve riprender solamente se
-stesso. nè mi negherete che la provisione necessaria non sia: la quale nasce 
+stesso. nè mi negherete che la provisione necessaria non sia: la quale nasce
 dall'arte dello schermo, come hora dirò.
 
 Io credo che quando uno haverà ragione,
 & animo, & forza di mantenerla, aggiunte a quest'arte, colui il più delle volte
-sarà il vincitore, & in questo procede l'argomento vostro. Ma quando esso 
+sarà il vincitore, & in questo procede l'argomento vostro. Ma quando esso
 rinuncia il favore suo, in non volere apprendere, come si habbia a difendere, se
 avviene il contrario, a lui imputar si debbe. Però concludendo dico, che uno, a
 cui in parte manchi l'ardire, & le forze, per conseguenza è necessaria l'arte
@@ -176,7 +176,7 @@ nondimeno gli potrebbe adoperar così in suo favore, come in suo pregiudicio.
 
 Alla quale cosa l'arte imitatrice della natura, ponendo mente; con la prova &
 con l'essercitio, cerca di farlo sciente, & capace. Et farebbe, come per
-essempio, un dire, che la natura dà le parole agli huomini, & che da natura 
+essempio, un dire, che la natura dà le parole agli huomini, & che da natura
 parlano:  ma però se con l'arte della eloquenza non si aiutano; mai non sapranno
 perfettamente formare il lor ragionamento, secondo le occasioni, & i tempi che
 loro si appresenteranno. Similmente da natura gli huomini hanno la voce, &
@@ -240,11 +240,11 @@ mestiero imparare: però quelli a' quali riesce male, debbono imputarlo a se
 stessi, poi che si lasciano condur sotto la disciplina di così fatti. Imperoché
 \(come di sopraho detto\) altro è il sapere, & altro l'insegnare. La diversità è
 manifesta perché uno c'habbia solo la prattica è buono a fatica per se; ma chi
-ha la Theorica è buono per altri; & chi ha la Theorica, & la prattica; è buono 
-per se, & per altri. Et tali erano quelli che authenticamente già si creavano 
+ha la Theorica è buono per altri; & chi ha la Theorica, & la prattica; è buono
+per se, & per altri. Et tali erano quelli che authenticamente già si creavano
 Maestri.
 
-**Lep.** Hora ch'io conosco l'eccellenza di quest'arte, & veggo, che la 
+**Lep.** Hora ch'io conosco l'eccellenza di quest'arte, & veggo, che la
 principal parte di essa è fondata nella Theorica; volentieri saprei in che
 consiste l'ordine, & il modo d'intenderla.
 
@@ -260,7 +260,7 @@ delle strette di mezza spada, & del tempo insieme.
 
 **Lep.** Veramente conosco hora quanto questo modo sia da gli altri differente,
 & molto più facile per conseguire il frutto di essa. Hora seguite, & a capo per
-capo ditemi distesamente il tutto, acciò  che il nostro ragionamento non sia 
+capo ditemi distesamente il tutto, acciò  che il nostro ragionamento non sia
 senza profitto
 
 ###### Filo dritto quale. {#filo_dritto}
@@ -293,7 +293,7 @@ chiama fendente, perché fende da capo a piedi per dritta linea.
 
 ###### Sgualimbro. {#sgualimbro}
 
-Ma sgualimbro si chiama quello mandritto, che per sgualimbro trascorre, cioè 
+Ma sgualimbro si chiama quello mandritto, che per sgualimbro trascorre, cioè
 dalla spalla manca al ginocchio destro dello avversario.
 
 ###### Tondo. {#tondo}
@@ -302,7 +302,7 @@ Il tondo, ò traverso si domanda quello, che al traverso volta.
 
 ###### Ridoppio. {#ridoppio}
 
-Ridoppio è quello, che si parte col filo dritto della spada di sotto, & va a 
+Ridoppio è quello, che si parte col filo dritto della spada di sotto, & va a
 finire alla punta della spalla dritta del nemico.
 
 ###### Tramazzone. {#tramazzone}
@@ -312,18 +312,18 @@ Tramazzone è quello, che si fa co'l nodo di mano, a guisa di molinello.
 ###### Riverso. {#riverso}
 
 Ma i riversi così si chiamano, perché sono opposti a' dritti, cominciando dalle
-manche parti, & finendo alle dritte: & sono consimili a' mandritti, cioè di 
+manche parti, & finendo alle dritte: & sono consimili a' mandritti, cioè di
 quelle medesime nature.
 
 ###### Punte. Imbroccata. Stoccata. Punta riversa. {#punte}
 
-Ma venendo alle punte, quella che si fa sopra mano, fu detta imbroccata: & 
-quella che si fa sotto mano, stoccata: & quella che dalle parti manche si 
+Ma venendo alle punte, quella che si fa sopra mano, fu detta imbroccata: &
+quella che si fa sotto mano, stoccata: & quella che dalle parti manche si
 diparte, punta riversa: & questo circa il secondo Capo.
 
 **Lep.** Non si può co'l falso della spada ferire?
 
-**Gio.** Si, ma di rado: percioché il falso più per parare, che per ferire si 
+**Gio.** Si, ma di rado: percioché il falso più per parare, che per ferire si
 adopra. Egli è ben vero che anco questo si divide in più nature: ma però due ve
 ne sono le più necessarie: cioè falso dritto, & falso manco.
 
@@ -402,7 +402,7 @@ detto, parimente si puo dire della guardia di cinghiale porta di ferro.
 
 Ora io dissi di sopra, che la guardia di coda lunga ancor si divide in tre
 nature. La prima si fa co'l piede destro innanzi verso le vostre parti dritte,
-& che'l pugno della spada sia di fuori, & presso al ginocchio destro, & che la 
+& che'l pugno della spada sia di fuori, & presso al ginocchio destro, & che la
 punta & la persona guardi il nimico: & è detta coda lunga stretta, per esser
 ancor essa guardia stretta, & molto sicura.
 
@@ -452,7 +452,7 @@ l'avversario: & è così chiamata, percioché è guardia fortissima per entrare.
 Queste quattro guardie si posson fare in due modi, ò col destro, ò co'l sinistro
 piede innanzi. & questo è quanto al terzo capo.
 
-**Lep.** Hora vorrei sapere, se da alto vi sono oltra queste altre guardie, 
+**Lep.** Hora vorrei sapere, se da alto vi sono oltra queste altre guardie,
 che siano in uso: delle quali poteste far mentione?
 
 **Gio.** Tre ne son restate, delle quali, acciò c'habbiate notitia di tutte, ho
@@ -468,14 +468,14 @@ sotto, facendo che la punta guardi di dietro: & ritengono il medesimo nome.
 
 Ma
 havendo già bastanza trattato delle guardie; in questo quarto capo, ragioneremo
-del passeggiare in esse, 
+del passeggiare in esse,
 
 **Lep.** Questo mi sarà grato. Mà prima desidero sapere circa le gia dette
 guardie, che in diversi modi nominate havete, s'altrimente le potreste dire, &
 per qual ragione così siano dette: perché di questo più volte ho udito diversi
 pareri?
 
-**Gio.** Voi dovete sapere, che tali nomi, furono posti a le guardie dagli 
+**Gio.** Voi dovete sapere, che tali nomi, furono posti a le guardie dagli
 antichi, & poi da' moderni per uso confermati: & se non da tutti, almeno dalla
 maggior parte c'hanno lume di quest'arte, per tali sono intesi & accettati: non
 che in altro modo non possino esser detti: ma il volere introdur novi nomi alle
@@ -515,14 +515,14 @@ staranno dritte, & non arcate, accomodandovi con più gratia che sia possibile:
 & ciò fatto porrete innanzi il pie destro verso le vostre parti dritte: & in
 quel tempo distenderete il braccio, & farete falso, & riverso sgualimbro, o vero
 farete dui riversi, il primo tondo, & il secondo, pure sgualimbro, andando con
-la spada in coda lunga stretta, & di qui passerete co'l pie sinistro innanzi 
+la spada in coda lunga stretta, & di qui passerete co'l pie sinistro innanzi
 verso le vostre manche parti, facendo in quell'istante falso, & mandritto
 sgualimbro, & la spada calerà in cinghiale porta di ferro: & poi andarete co'l
 pie destro innanzi un passo, & in tal tempo volgerete un dritto trammazzone: il
 quale si fermerà in porta di ferro stretta.
 
 Indi crescerete innanzi co'l manco
-piede, facendo falso, & riverso sgualimbro, & la spada anderà in coda lunga 
+piede, facendo falso, & riverso sgualimbro, & la spada anderà in coda lunga
 alta. Poi passerete del destro piede innanzi, & nel medesimo tempo volgerete un
 riverso ridoppio, fermando la spada in guardia d'alicorno, & essendo fermo nella
 detta guardia spingerete un'imbroccata senza passeggiamento alcuno, & la spada
@@ -558,6 +558,6 @@ armi.
 
 **Gio.** A me nulla incresce, ove speri potervi compiacere: ma parmi che l'hora
 sia tarda, & il ragionamento non havrà da esser breve, si che stimo, che non sia
-fuori di proposito differirlo a domani, 
+fuori di proposito differirlo a domani,
 
 **Lep.** Facciamo come vi piace.
