@@ -1,12 +1,16 @@
-# IL PRIMO LIBRO DE' DIALOGHI
+IL PRIMO LIBRO DE'DIALOGHI
+----------------------------
 
-### _Di Messer Giovanni Dall'Agocchie Bolognese:_
+Di Messer Giovanni Dall'Agocchie Bolognese:
+^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
-### Nel qual si tratta dell'arte dello Schermire; diviso in cinque giornate.
+Nel qual si tratta dell'arte dello Schermire; diviso in cinque giornate.
+^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^^
 
-#### INTERLOCUTORI
-
-#### _M. Lepido Ranieri, & M. Giovanni dall'Agocchie._ {#introduzione}
+INTERLOCUTORI
+~~~~~~~~~~~~~~~~~~
+M. Lepido Ranieri, & M. Giovanni dall'Agocchie.
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
 **LEP.** Messer Giovanni, hora che questo si gran caldo di maniera ci molesta,
 che non permette per alquante hore, che noi alcuna cosa facciamo, mi parrebbe
@@ -51,7 +55,8 @@ sommamente desidero, & debbo sodisfare; dirò in parte il mio parere.
 comporta: & principalmente onde nasce, che un'arte si degna sia tenuta in così
 poca reputatione?
 
-###### Arte dello schermire perché si poco stimata. {#poca_stima}
+Arte dello schermire perché si poco stimata.
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Intorno a questo quesito, come che varij variamente nè favellino; io
 sono di quelli che tengo opinione, ciò non procedere da altro, se non che molti
@@ -63,7 +68,8 @@ sprezzano.
 **Lep.** Dichiaratemi, vi prego, per qual ragione questa sia fondamento
 dell'arte militare.
 
-###### Schermo perché è fondamento dell'arte militare. {#fondamento}
+Schermo perché è fondamento dell'arte militare. 
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Vi dirò, si può pigliar questo nome in generale, & in particolare. In
 generale, per ogni forte di militia. In particolare, per lo combattere da solo
@@ -123,7 +129,8 @@ fu fatta da loro come schermitori: atteso che è impossibile che essi, come tali
 siano stati vinti. Mà ben può esser loro avvenuto come a pigri, ingiusti, o
 vili: & all'hora cessano di essere schermitori, tosto che son offesi.
 
-###### Parti che si ricercano nel buono schermitore. {#buono_schermitore}
+Parti che si ricercano nel buono schermitore.
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Perché molte parti si ricercano al buono schermitore, & assai più à chi si
 conduce a combattere: Come a dire, ragione, animosità, forza, destrezza,
@@ -200,7 +207,8 @@ dubij, che più della dignità di quest'arte non dubito. Et poi che mi havete a
 bastanza ragionato della ncessità, che n'ha ciascuno, non v'incresca ancora
 dirmi il modo, & la regola, che tener si debbe per impararla.
 
-###### Theorica & prattica fondamenti dell'arti. {#fondamenti}
+Theorica & prattica fondamenti dell'arti.
+~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Horamai siamo tanto avanti, che non voglio restare di dirvi tutta
 l'opinione mia intorno a questo. Sappiate dunque che si come tutte l'arti
@@ -248,7 +256,8 @@ Maestri.
 principal parte di essa è fondata nella Theorica; volentieri saprei in che
 consiste l'ordine, & il modo d'intenderla.
 
-###### Arte dello schermire ha sei capi. {#6capi}
+Arte dello schermire ha sei capi.
+~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Questa si fonda, & si divide in sei capi principali: E il primo è, che
 havendo da adoprare la spada; sappiate qual sia il suo filo dritto, & quale il
@@ -263,7 +272,8 @@ delle strette di mezza spada, & del tempo insieme.
 capo ditemi distesamente il tutto, acciò  che il nostro ragionamento non sia
 senza profitto
 
-###### Filo dritto quale. {#filo_dritto}
+Filo dritto quale.
+~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Quanto al primo del filo dritto. Ogni volta che haverete impugnato la
 spada così nella destra, come nella sinistra mano, il taglio che guarderà verso
@@ -275,7 +285,8 @@ tre.
 
 **Lep.** Non v'incresca dirmi come s'intendano queste nature, & quali siano.
 
-###### Colpi di più forti. {#colpi_forti}
+Colpi di più forti.
+~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Tutti i colpi saranno, ò mandritti, ò riversi, ò punte. Ma ciascuno di
 essi ha seco più nature, secondo la diversità del suo colpire. Perché il
@@ -286,36 +297,43 @@ converte in tre nature, cioè imbroccata, stoccata, & punta riversa.
 **Lep.** Prima che più oltre passiate; ditemi perché così date questi nomi a'
 colpi & quali sono.
 
-###### Mandritto. {#mandritto}
+Mandritto.
+~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Il mandritto si dimanda così perché dalle parti dritte comincia: & si
 chiama fendente, perché fende da capo a piedi per dritta linea.
 
-###### Sgualimbro. {#sgualimbro}
+Sgualimbro. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Ma sgualimbro si chiama quello mandritto, che per sgualimbro trascorre, cioè
 dalla spalla manca al ginocchio destro dello avversario.
 
-###### Tondo. {#tondo}
+Tondo. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Il tondo, ò traverso si domanda quello, che al traverso volta.
 
-###### Ridoppio. {#ridoppio}
+Ridoppio. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Ridoppio è quello, che si parte col filo dritto della spada di sotto, & va a
 finire alla punta della spalla dritta del nemico.
 
-###### Tramazzone. {#tramazzone}
+Tramazzone. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Tramazzone è quello, che si fa co'l nodo di mano, a guisa di molinello.
 
-###### Riverso. {#riverso}
+Riverso. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Ma i riversi così si chiamano, perché sono opposti a' dritti, cominciando dalle
 manche parti, & finendo alle dritte: & sono consimili a' mandritti, cioè di
 quelle medesime nature.
 
-###### Punte. Imbroccata. Stoccata. Punta riversa. {#punte}
+Punte. Imbroccata. Stoccata. Punta riversa. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Ma venendo alle punte, quella che si fa sopra mano, fu detta imbroccata: &
 quella che si fa sotto mano, stoccata: & quella che dalle parti manche si
@@ -327,7 +345,8 @@ diparte, punta riversa: & questo circa il secondo Capo.
 adopra. Egli è ben vero che anco questo si divide in più nature: ma però due ve
 ne sono le più necessarie: cioè falso dritto, & falso manco.
 
-###### Falso dritto & manco. {#falsi}
+Falso dritto & manco. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Falso dritto sarà, partendosi dalle vostre parti dritte, & andando di sotto in
 sù per la linea del mandritto. Ridoppio falso manco sarà, partendosi dal lato
@@ -337,7 +356,8 @@ quanto al falso.
 **Lep.** Hò assai bene inteso questi due capi. Resta hora, secondo il vostro
 ordine, che delle guardie, facciate mentione.
 
-###### Guardie più importanti sono otto. Coda lunga. {#coda_lunga}
+Guardie più importanti sono otto. Coda lunga. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Hor venendo alle guardie, dico: Che assai ce ne sono, si da basso, come
 da alto: mà le più importanti sono otto, quattro da alto, & quattro da basso. Da
@@ -355,7 +375,8 @@ assai gente accompagnati sono, & però si dice per volgare proverbio, Guardati d
 quelli che hanno la coda longa, cioè che hanno seguito. Et non altrimenti
 bisogna da questa guardia guardarsi, perché hà la coda lunga.
 
-###### Porta di ferro. {#porta_di_ferro}
+Porta di ferro. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 La seconda è detta porta di ferro, a similitudine d'una porta di ferro, che a
 volerla atterrare ci vole fatica, & arte assai. Così a ferire chi sia posto in
@@ -383,7 +404,8 @@ ferro, & così di coda lunga tanto co'l destro, quanto co'l sinistro piede
 innanzi, per esser dall'una all'altra poca differenza. Ma poi che tanto curioso
 vi veggo di saper il tutto; vi dirò:
 
-###### Porta di ferro stretta, & larga. {#pdf_stretta_larga}
+Porta di ferro stretta, & larga.
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Ogni volta che haverete il pie dritto
 innanzi un passo, il quale non sia grande ne piccolo, ma proportionato co'l
@@ -398,7 +420,8 @@ larga, se alquanto alzerete il pugno della spada; questa sarà porta di ferro
 alta, per essere più alta dell'altre due. Et questo che di porta di ferro si è
 detto, parimente si puo dire della guardia di cinghiale porta di ferro.
 
-###### Coda lunga di tre nature. {#nature_coda}
+Coda lunga di tre nature. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 Ora io dissi di sopra, che la guardia di coda lunga ancor si divide in tre
 nature. La prima si fa co'l piede destro innanzi verso le vostre parti dritte,
@@ -423,7 +446,8 @@ distesa: & queste son così chiamate per le ragioni sopradette.
 fatto intendere da voi più di quello ch'era l'intention mia, merce della vostra
 gentilezza: però seguite il ragionare dell'altre
 
-###### Guardia & sue specie. {#guardie}
+Guardia & sue specie. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Quanto alle guardie alte, La prima si chiamerà guardia d'alicorno: & si
 conosce quando l'impugnatura della spada è volta all'in giù, e il braccio ben
@@ -488,7 +512,8 @@ come ritrovati gli habbiamo, così li lasceremo.
 m'havete sodisfatto, il preso ordine seguendo del modo del passeggiare in esse,
 aspetto che da voi mi sia dato cognitione.
 
-###### Passeggiare nelle guardie, come si fa. {#passeggiata_guardie}
+Passeggiare nelle guardie, come si fa. 
+~~~~~~~~~~~~~~~~~~~~~~~
 
 **Gio.** Con ragione & arte si passeggia, & si và a ritrovare l'avversario in
 tutte le guardie: & questo far si può con l'uno & con l'altro piede cominciando,

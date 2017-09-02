@@ -1,4 +1,5 @@
-## LA SECONDA GIORNATA DEL PRIMO LIBRO:
+LA SECONDA GIORNATA DEL PRIMO LIBRO:
+----------------------------
 
 ### Nella quale si ragiona dello schermire di spada sola.
 

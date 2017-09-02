@@ -1,4 +1,5 @@
-## LA TERZA GIORNATA DEL PRIMO LIBRO:
+LA TERZA GIORNATA DEL PRIMO LIBRO:
+----------------------------
 
 ### Nella quale si tratta del modo, che si deve tenere in tentar d'offendere il
 nimico, quando si voglia essere il primo a ferirlo.
