@@ -717,4 +717,4 @@ venga adempito il desiderio mio.
 
 **Gio.** Così a punto faremo, & farò ogni mio potere per compiacervi.
 
-### _Il fine del Primo Libro._
+*Il fine del Primo Libro.*

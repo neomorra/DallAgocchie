@@ -720,7 +720,7 @@ nimico, ritrovandovi nelle due guardie nominate di sopra.
 **Lep.** Queste provocationi a me pare, che altro non siano, che mutatione di
 guardie.
 
-**Gio.**E vero: perché in queste due guardie d'alicorno; altro non si può fare
+**Gio.** E vero: perché in queste due guardie d'alicorno; altro non si può fare
 per provocare il nimico, che astringerlo & farli delle finte, ò vero fare
 delle mutationi di guardie, acciò ch'egli habbia cagione di moversi, ò di
 rispondere.
