@@ -1,7 +1,8 @@
-LA QUINTA GIORNATA DEL PRIMO LIBRO:
------------------------------------
+***********************************
+La Quinta Giornata del Primo Libro:
+***********************************
 
-### Nella quale si tratta del modo di valersi della spada, & della cappa.
+*Nella quale si tratta del modo di valersi della spada, & della cappa.*
 
 **Lep.** Che mi dite, M. Giovanni, della giostra, che fecero quei Cavalieri?
 
@@ -25,7 +26,8 @@ lui, ritrovandovi in qual si voglia delle sei guardie di sopra nominate: Delle
 quali havendo io sempre tenuto una regola ferma nel ragionare di esse, per più
 facile intelligenza, così ancora in queste altre seguirò.
 
-###### Cappa come s'imbraccia. {#imbracciare_cappa}
+Cappa come s'imbraccia.
+=======================
 
 Dicovi dunque, c'havendo voi la cappa a torno la lasciarete cadere giù dalla
 spalla destra per infino al mezzo del sinistro braccio, & poi volgerete la manca
@@ -86,7 +88,7 @@ mandritto sgualimbro, volgendogli in risposta un riverso per testa, ò di una
 punta riversa per il petto, facendo che'l pie sinistro segua il destro per di
 dietro.
 
-Potete ancora pararla co'l falso della spada, et subito segarli di riverso per 
+Potete ancora pararla co'l falso della spada, et subito segarli di riverso per
 amba, si che'l pie manco spinga il dritto innanzi.
 
 Si può inoltre passare del manco piede verso le sue destre parti, & urtarla in
@@ -290,7 +292,7 @@ spada in cinghiale porta di ferro, & con la cappa a guardia di testa. Et questi
 sono gli schermi, che potete fare in questa guardia.
 
 Hor udite  quello che si può far nella quinta guardia, la quale sarà quella
-d'alicorno co'l pie dritto innanzi. 
+d'alicorno co'l pie dritto innanzi.
 
 Essendo voi fermo in questa guardia, & trovandovi con la cappa in cinghiale
 porta di ferro, se'l nimico vi volesse ferire d'un mandritto per testa; voi
@@ -386,7 +388,8 @@ guardie, acciò che meglio ne veniate capace.
 
 **Lep.** Quest'ancora mi sarà sommamente caro.
 
-###### Colpi finti in che modo si devono parare. {#parare_finti}
+Colpi finti in che modo si devono parare.
+=========================================
 
 **Gio.** Dico dunque, che essendo voi con la spada in coda lunga stretta, & con
 la cappa in cinghiale porta di ferro, contra il nimico, & ch'egli vi spingesse
@@ -438,7 +441,8 @@ occorrere.
 
 **Lep.** Questa vostra amorevolezza è tale che mi vi obliga in eterno.
 
-###### Di provocare & ferire il nimico, e schermirsi dalle sue provocationi in guardia di coda lunga stretta. {#provocationi}
+Di provocare & ferire il nimico, e schermirsi dalle sue provocationi in guardia di coda lunga stretta.
+======================================================================================================
 
 **Gio.** Lasciamo questo da parte, & seguiamo il nostro ragionamento: nel quale
 havete a saperem che ritrovandovi con le spade in coda lunga stretta, & con le
@@ -480,7 +484,8 @@ lunga stretta: hor udite i suoi contrarij.
 **Lep.** Avanti che cominciate, vorrei che prima mi diceste, se altri modi vi
 sono da gittare la cappa, e imbracciarla ancora?
 
-###### Cappa come s'imbraccia. {#imbracciare_cappa2}
+Cappa come s'imbraccia.
+=======================
 
 **Gio.** Due altri modi vi sono da imbracciarla: L'uno è, che havendo voi la
 cappa atorno; la farete cadere giù dalla spalla destra urtandola co'l braccio
@@ -493,7 +498,7 @@ dritto della spada verso le sue parti manche: ma tutto a un tempo passerete
 innanzi del pie sinistro; gittandogli per sopra la vostra spalla la cappa nella
 faccia, tenendola però stretta nel pugno: e in tal gittamento li spingerete
 un'imbroccata per il petto, ò gli darete d'un mandritto per le gambe: & ciò
-fatto volendola rimbracciare, volgerete la manca mano per di fuori, 
+fatto volendola rimbracciare, volgerete la manca mano per di fuori,
 accogliendola sopra il braccio, & con essa vi ponerete in cinghiale porta di
 ferro, & con la spada in coda lunga stretta.
 
@@ -708,7 +713,7 @@ essere l'hora tarda, et perché mi pare che di questo habbiamo trattato assai.
 **Lep.** In ogni parte da voi resto sodisfatto, & infinitamente vi ringratio.
 Resta solo piacendovi, che domani ci ritroviamo qui per ragionare della giostra,
 come da voi mi fu promesso°: accò che come del resto, così di questo ancora
-venga adempito il desiderio mio. 
+venga adempito il desiderio mio.
 
 **Gio.** Così a punto faremo, & farò ogni mio potere per compiacervi.
 

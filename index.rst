@@ -7,12 +7,6 @@
 Giovanni dall'Agocchie dell'arte di scrimia
 ###########################################
 
-.. toctree: :
-..   :maxdepth: 2
-   :caption:
-   :contents:
-   :titlesonly:
-
 .. contents:: Indice
    :depth: 3
 

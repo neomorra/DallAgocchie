@@ -1,10 +1,12 @@
-LA TERZA GIORNATA DEL PRIMO LIBRO:
-----------------------------
+**********************************
+La Terza Giornata del Primo Libro:
+**********************************
 
-### Nella quale si tratta del modo, che si deve tenere in tentar d'offendere il
-nimico, quando si voglia essere il primo a ferirlo.
+*Nella quale si tratta del modo, che si deve tenere in tentar d'offendere il
+nimico, quando si voglia essere il primo a ferirlo.*
 
-###### Del provocare, & offendere. {#provocare_offendere}
+Del provocare, & offendere.
+===========================
 
 **Lep.** Hor che siamo quà per seguire i nostri ragionamenti, ne' quali hieri mi
 dimostrarste i lmodo del difendermi dal nimico, & di offendere lui, desiderarei
@@ -62,7 +64,8 @@ volgerete in fuori il fil dritto contra di essa, spingendoli la punta per
 faccia, & queste sono le provocationi, insieme, con le offensioni, che fare si
 possono, essendo amendue nella sopradetta guardia.
 
-###### Provocationi perché si fanno. {#provcationi_perche}
+Provocationi perché si fanno.
+=============================
 
 Le quali provocationi, accio che meglio sappiate, si fanno per due cagioni:
 l'una per fare mover'il nimico di guardia, e incitarlo à ferire: accio che più
@@ -87,7 +90,8 @@ potrei difendere?
 
 **Lep.** Ditemi ancora come si fanno questi contrarij?
 
-###### Contrarii delle provocationi in coda longa stretta quali sono. {#contrari_cls}
+Contrarii delle provocationi in coda longa stretta quali sono.
+==============================================================
 
 **Gio.** Se'l nimico urterà del falso per volgervi il tramazzone; voi subito
 anderete con la spada in guardia di faccia, spingendoli la punta nel volto: &
@@ -137,7 +141,8 @@ il giudicio, le farete sicure; & questo l'acquisterete essercitandovi assai, &
 con diversi; percioché da questa varietà verrete à farvi giudicioso, & accorto
 nel provocare il nimico.
 
-###### Provocationi in coda lunga alta. {#coda_longa_alta}
+Provocationi in coda lunga alta.
+================================
 
 Hor veniamo alle provocationi della seconda guardia, che sarà coda lunga alta.
 In questo ritrovandovi amendue fermi, & volendo voi esser'il primo a provocare
@@ -175,7 +180,8 @@ inteso i suoi contrarij.
 
 **Lep.** Gli hò intesi benissimo.
 
-###### Provocationi in porta di ferro stretta. {#porta_di_ferro_stretta}
+Provocationi in porta di ferro stretta.
+=======================================
 
 **Gio.** Hor notate queste altre provocationi della terza guardia, la quale sarà
 porta di ferro stretta: nella quale essendo amendue fermi, & volendo voi esser
@@ -276,7 +282,8 @@ contrario, cioè, che questo altro non è, che una mutatione di guardia: la qual
 sono assai colpi, che non si potrebbono parare, se non si potesse ritornare
 indietro un passo.
 
-###### Provocationi in Cinghiale porta di ferro. {#chinghiale_pdf}
+Provocationi in Cinghiale porta di ferro.
+=========================================
 
 Ma lasciamogli pure stare nella loro opinione, & seguiamo il ragionamento del
 provocare il nimico, quando si trovasse fermo in cinghiale porta di ferro, & che
@@ -312,7 +319,8 @@ volte mentione de' mezzi mandritti, volentieri saprei, perché si fanno, & perch
 così si chiamano, & poi seguirete il ragionare delle provocationi, che fa si
 possono nell'altra guardia.
 
-###### Mezi mandritti, perché si fanno, & così si chiamano {#mezzi_mandritti}
+Mezi mandritti, perché si fanno, & così si chiamano
+===================================================
 
 **Gio.** Vi dirò. Voi sapete che'l mandritto sgualimbro principia dalla spalla
 manca, & finisce al ginocchio destro del nimico, & per questo fu nominato colpo
@@ -321,7 +329,8 @@ colpo finito, & per esser ancor di manco tempo, vien detto mezzo mandritto: il
 qual si fa il più delle volte quando si trova appresso al nimico per maggior
 sicurezza.
 
-###### Provocationi in guardia d'alicorno. {#alicorno}
+Provocationi in guardia d'alicorno.
+===================================
 
 Hor seguendo le provocationi della quinta, & ultima guardia, ch'è quella
 d'alicorno co'l pie destro innanzi; dico, che quando vi troverete fermo in
@@ -388,10 +397,11 @@ offeso.
 
 **Lep.** Dichiaratemelo meglio.
 
-###### Tempo da ferire si conosce in cinque modi. {#tempi_ferire}
+Tempo da ferire si conosce in cinque modi.
+==========================================
 
 **Gio.** Poi che mi date occasione di ragionare del tempo; vi dirò. Cinque modi
-sono da conoscere questo tempo da ferire. 
+sono da conoscere questo tempo da ferire.
 
 Il primo è, quando haverete parato il colpo del nimico, che all'hora è tempo da
 ferire.
@@ -420,7 +430,7 @@ può ferire?
 
 **Gio.** Di due tempi, un tempo, et mezzo tempo.
 
-I due tempi sono quelli, quando la spada para, e poi ferisce. 
+I due tempi sono quelli, quando la spada para, e poi ferisce.
 
 Un tempo è quello, quando si ferisce senza parare il colpo, ò vero quando si
 para, & ferisce in un'istante.
@@ -430,7 +440,7 @@ colpo.
 
 Ma èper far ritorno al ragionare del ferire fuori di tempo; dico. Colui che
 anderà deliberato senza alcun vantaggio per ferire, essendo il nimico fermo in
-guardia; anderà fuor di tempo: perché in quel caso lo troverà libero, ove 
+guardia; anderà fuor di tempo: perché in quel caso lo troverà libero, ove
 h'egli potrà fare i suoi contrarij come vi dissi nella dichiaratione del quinto
 capo.
 
@@ -469,7 +479,8 @@ insieme co'lor contrarij, acciò che intieramente restiate da me sodisfatto.
 
 **Lep.** Voi non mi potete fare cosa più grata di questa.
 
-###### Strette di meza spada. {#strette_mezza}
+Strette di meza spada.
+======================
 
 **Gio.** Ritrovandovi dunque co'l vostro nimico falso con falso, cioè che i
 falsi delle spade si bascino insieme, & volendo voi esser'il primo a ferire:
@@ -482,7 +493,7 @@ andarete in guardia di faccia a schermirvi, spingendoli in quel tempo la punta
 nel volto, ò vero come egli si moverà per volgere il mandritto; tirarete il
 piede, che sarà innanzi, indietro un passo, volgendogli in quell'instatnte un
 mandritto sgualimbro per il braccio destro, co'l quale andarete in cinghiale
-porta di ferro. 
+porta di ferro.
 
 Seconda. Potete crescere innanzi del piede, & far vista di darli di un mandritto
 tondo: nondimeno volgergli di riverso per testa, ritornando subito del piede
@@ -509,7 +520,7 @@ all'indietro, insieme con un riverso sgualimbro: co'l qual vi fermerete in coda
 lunga alta.
 
 Il contrario sarà questo. Mentre che il nimico abbasserà la punta; piglierete la
-sua spada su'l vostro fil dritto, cacciandogli una stoccata per il volto, ò vero 
+sua spada su'l vostro fil dritto, cacciandogli una stoccata per il volto, ò vero
 ello abbassare della punta: voi subito scanserete del piede all'indietro,
 tirandogli nel medesimo tempo un mandritto sgualimbro per la nimica mano.
 
@@ -685,7 +696,7 @@ respondere, ò ritirarsi indietro.
 
 Ma voglio che poniamo caso, ch'egli li rispondesse d'un mandritto per testa: lo
 farei alquanto crescere del pie manco verso le parti destre del nimico, e in tal
-tempo parare il colpo con un riverso sgualimbro, passando tosto del pie dritto, 
+tempo parare il colpo con un riverso sgualimbro, passando tosto del pie dritto,
 e spingendogli un'imbroccata per il petto: la quale ritornasse nella detta
 guardia.
 
@@ -727,7 +738,8 @@ grave ancora di ragionare di quest'altra guardia, & dir'il modo, ch'egli deve
 tenere nel parare co'l fil dritto della spada, & ferire di punta, che questo
 ancora mi sarà di grandissima sodisfattione.
 
-###### Del parar co'l fil dritto della spada, & ferir di punta. {#parare_dritto}
+Del parar co'l fil dritto della spada, & ferir di punta.
+========================================================
 
 **Gio.** Quando egli sarà in coda lunga stretta contra il nimico, & ch'egli li
 tirasse di mandritto per testa; potrà parare in guardia di faccia, facendo che'l

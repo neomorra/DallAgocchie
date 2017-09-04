@@ -1,7 +1,8 @@
-LA SECONDA GIORNATA DEL PRIMO LIBRO:
-----------------------------
+************************************
+La Seconda Giornata del Primo Libro:
+************************************
 
-### Nella quale si ragiona dello schermire di spada sola.
+*Nella quale si ragiona dello schermire di spada sola.*
 
 **Gio.** Poi che hieri, Meser Lepido mio, per la brevità del tempo non potei
 compiacervi, hoggi cercherò di farlo, ragionandovi di spada sola: & conveniente
@@ -14,7 +15,8 @@ fondamento di tutto lo schermo.
 ch'io sapessi, che con tante preminenze all'altre armi togliesse il pregio: di
 che volentieri ne saprei alcuna ragione.
 
-###### Spada sola, perché preferita all'altre armi. {#preferita}
+Spada sola, perché preferita all'altre armi.
+============================================
 
 **Gio.** Le principali ragioni, che la spada sola all'altre armi si preferisca;
 sono, che non essendo cosa al mondo che più si apprezzi dell'honore il quale
@@ -65,7 +67,8 @@ prima che al quinto, & sesto capo veniamo: vi darò alcuni avertimenti necessari
 sopra il parare, & il ferire, & sopra il movimento de' piedi, & della persona,
 accioché con più facilità possiate comprende il resto.
 
-###### Parar con la spada in quanti modi si fa. {#parare}
+Parar con la spada in quanti modi si fa.
+========================================
 
 Havete dunque à sapere; che in due modi soli con la spada si può parare, ò co'l
 fil dritto di essa, ò co'l falso. Il qual falso si dicide in due nature; come vi
@@ -104,7 +107,8 @@ dove si ferisce di punta, si può ferir ancor di taglio.
 
 **Lep.** Qual tenete voi, che sia meglio ferire, di punta, ò di taglio?
 
-###### Ferir di punta è migliore che di taglio. {#meglio_punte}
+Ferir di punta è migliore che di taglio.
+========================================
 
 **Gio.** L'uno & l'altro è buono: nondimeno hò il ferire di punta per migliore.
 Perché la punta è di manco tempo, per esser più propinqua al nimico, & ancor è
@@ -115,7 +119,8 @@ più dal nimico: & perciò io tengo il ferire di punta, per migliore & più sicu
 
 **Lep.** Così credo che sia.
 
-###### Del mover de' piedi, & della vita. {#movere_piedi}
+Del mover de' piedi, & della vita.
+==================================
 
 **Gio.** Hor venendo al movere de' piedi, & della vita insieme, vi dico, che
 quando vi troverete nelle guardie co'l pie dritto innanzi, & che vi occorrerà
@@ -135,7 +140,7 @@ dritta: & da quella parte dove vi occorrerà parare, ò vero urtare il colpo del
 nimico, essendo si l'uno, come con l'altro piede innanzi; volgerete la persona &
 la gamba che sarà di dietro per lo contrario: imperoché ciò facendo, verrete a
 fare due schermi, l'uno con la spada, & l'altro con la vita: & di più verrete a
-discostarvi dalla detta spada, & maggiormente vi accostere al discoperto di 
+discostarvi dalla detta spada, & maggiormente vi accostere al discoperto di
 esso, & vi sarà più facil'e più sicuro il ferirlo.
 
 Voglio anco avertirvi, che
@@ -148,7 +153,8 @@ osservando questi ordini, non potrete errare.
 dichiaratione del quinto capo mi sarà più facile, sopra de quale aspetto i
 vostri ragionamenti.
 
-###### Modi di difendersi dal numico, & d'offender lui. {#difesa_offesa}
+Modi di difendersi dal numico, & d'offender lui.
+================================================
 
 **Gio.** Voglio in questo quinto capo dimostrarvi tutti i modi del difendervi
 dal nimico, & offendere lui, quando egli vi volesse ferire, si di taglio, come
@@ -398,8 +404,8 @@ detta guardia far si può: accioché meglio veniate in cognition del tutto.
 
 **Lep.** Spero con questo ordine ottenere da voi quanto desidero.
 
-###### Porta di ferro stretta. {#porta_di_ferro}
-
+Porta di ferro stretta.
+=======================
 **Gio.** Hor venendo al ragionare della terza guardia, che sarà porta di ferro
 stretta; nella quale essendo fermo contra il vostro nimico, & ch'egli vi tirasse
 per testa d'un mandritto fendente; potete urtarlo con un falso manco, facendo
@@ -603,7 +609,8 @@ esse fare si possono.
 
 **Lep.** Di questi due schermi qual ritenete voi migliore?
 
-###### Schermo più sicuro qual è. {#schermo_sicuro}
+Schermo più sicuro qual è.
+==========================
 
 **Gio.** Tutti due son buoni; ma però gli schermi, che si fanno co'l fil dritto
 della spada, son migliori, & più sicuri. Perché quasi sempre si fanno nel forte
@@ -627,7 +634,8 @@ dal mezzo indietro.
 guardia d'alicorno co'l pie destro innanzi: la quale bramo sapere, per
 esser'ancor essa & pregiata, & usata molto.
 
-###### Guardia d'alicorno. {#alicorno}
+Guardia d'alicorno.
+===================
 
 **Gio.** Nè ragionerò volentieri. Dicovi adunque, che se vi trovaste in detta
 guardia, e il nimico vi tirasse un fendente per testa, voi potete tirare il pie
@@ -698,7 +706,7 @@ tenere ad impararla compitamente.
 Ma perché hò sempre ragionato d'una sol
 guardia per volta, hor ne voglio ragionare di tutte insieme; cioè quando di una,
 & quando di un'altra, secondo che in esse vi trovarete: perché non si potrebbe
-star sempre fermo in una se non difficilmente. 
+star sempre fermo in una se non difficilmente.
 
 **Lep.** Per che ragione??
 
@@ -712,7 +720,7 @@ La stoccata & ancor la punta riversa può fermarsi,
 si nell'una come nell'altra guardia: nondimeno il dritto della punta riversa, è
 finire in coda lunga stretta, & la stoccata in porta di ferro: & di quì nasce la
 difficoltà. Ma oltra di questo lo faccio ancora, acciò che vi facciate in esse
-maggiormente prattico. 
+maggiormente prattico.
 
 **Lep.** Vi ringratio, & me ne fate piacere; perché questo è il desiderio mio.
 

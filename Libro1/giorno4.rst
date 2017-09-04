@@ -1,7 +1,8 @@
-LA QUARTA GIORNATA DEL PRIMO LIBRO:
-----------------------------
+***********************************
+La Quarta Giornata del Primo Libro:
+***********************************
 
-### Nella qual si tratta della spada, & del pugnale.
+*Nella qual si tratta della spada, & del pugnale.*
 
 **Gio.** Poi che noi siamo ridotti al luogo solito; darò principio a ragionare
 della spada co'l pugnale, come hieri da me vi fu promesso: ancor che in queste
@@ -15,14 +16,15 @@ si possono.
 
 **Lep.** Apunto questo è il mio desiderio.
 
-###### Modo di mettervi in guardia con la spada & co'l pugnale. {#guardia}
+Modo di mettervi in guardia con la spada & co'l pugnale.
+========================================================
 
 **Gio.** Dicovi adunque, che quando passeggiarete nelle guardie, mentre la spada
 anderà in coda lunga stretta; nel medesimo tempo co'l pugnale andarete in
 cinghiale porta di ferro alta.
 
 Et quando la spada si fermerà in cinghiale porta di ferro; fermarete anco il
-pugnale in guardia di testa. 
+pugnale in guardia di testa.
 
 Ma mentre che la spada calerà in porta di ferro; chinarete il pugnale in coda
 lunga alta.
@@ -31,7 +33,7 @@ E quando guidaree la spada in coda lunga alta; guidarete ancor il pugnale in
 porta di ferro alta.
 
 Poi mentre che alzarete la spada in guardia d'alicorno; abbassarete il pugnale
-in cinghiale porta di ferro. 
+in cinghiale porta di ferro.
 
 Et questa è la maniera, che dovete tenere nel ponere le guardie si nel
 passeggiare innanzi, come indietro, & per traverso ancora: le quali
@@ -89,7 +91,8 @@ maggior difesa.
 **Lep.** Hor ch'io ho inteso questi avertimenti; cominciate à ragionarmi delle
 difese & offese, che in esse far si possono.
 
-###### Difese, & offese della spada, & del pugnale insieme. {#difesa_offesa}
+Difese, & offese della spada, & del pugnale insieme.
+====================================================
 
 **Gio.** Primamente porremo caso, che voi vi trovaste con la spada in coda lunga
 stretta, & co'l pugnale pugnale in cinghiale porta di ferro contra il vostro
@@ -437,7 +440,7 @@ in porta di ferro alta.
 Hor se'l nimico vi rispondesse di mandritto, ò riverso, ò di punta; potete
 parare co'l pugnale, & indi subito crescere innanzi del pie destro verso le sue
 parti sinistre, e spingerli la punta per il petto: & con questo farò fine al
-variare delle guardie, nelle quali vi ho dimostrato quel che si potrà fare. 
+variare delle guardie, nelle quali vi ho dimostrato quel che si potrà fare.
 
 Ben'è vero, che se ne potrebbe parlare più diffusamente; ma noi studiando alla
 brevità, resteremo per hora di più ragionarne, massimamente, ch'io voglio
@@ -447,7 +450,8 @@ possiate servire.
 
 **Lep.** Me ne farete piacere.
 
-###### Modo di provocare & ferire il nimico, che non voglia tirare. {#provocare_passivo}
+Modo di provocare & ferire il nimico, che non voglia tirare.
+============================================================
 
 **Gio.** Dico dunque; Che ritrovandovi amendue con le spade in coda lunga
 strtta, & co'pugnali in cinghiale porta di ferro, & volendo voi provocare il
@@ -523,7 +527,8 @@ provocationi.
 
 **Lep.** Gli hò intesi. Seguite pure.
 
-###### Secondo modo di provocare, & offendere il nimico. {#seconda}
+Secondo modo di provocare, & offendere il nimico.
+=================================================
 
 **Gio.** Hor seguendo la seconda maniera di provocare il nimico, dico; Che
 quando amendue vi trovaste con la spada in coda lunga alta, & co'pugnali in
@@ -547,7 +552,8 @@ essendo nelle due guardie sopradette.
 
 **Lep.** Questa punta in falso come si fa?
 
-###### Punta in falso, & mandritto in falso. {#punta_mandritto_falso}
+Punta in falso, & mandritto in falso.
+=====================================
 
 **Gio.** Si spinge la punta della spada co'l braccio ben disteso per di fuori
 dalle sue manche parti, facendo che'l falso di essa vada verso la sua faccia,
@@ -555,7 +561,7 @@ volgendo in quel tempo la persona dietro le vostre parti dritte: & similmente si
 può fare un mandritto in falso, & un riverso ancora: i quali si fanno mentre che
 si tira il colpo, perché quasi nel colpire di esso, & massimamente del
 mandritto, si volge il dritto della mano all'insù, & per questa cagione
-pigliarono questi nomi. 
+pigliarono questi nomi.
 
 Hor seguendo i contrarij delle dette provocationi, dico; Che quando il nimico
 tirerà del falso per la manca mano, alzerete il pugnale a guardia di testa, &
@@ -592,7 +598,8 @@ imbroccata per il petto.
 
 Et questi sono i contrarij alle predette offese.
 
-###### Terzo modo di provocare & offendere. {#terza}
+Terzo modo di provocare & offendere.
+====================================
 
 Hora udite la terza maniera di provocare, & offender'il nimico: la quale è, che
 essendo amendue con le spade in porta di ferro stretta, & co'pugnali in coda
@@ -661,13 +668,15 @@ respondere, che per altro.
 che si fanno con la spada sola, ò queste che si fanno con la spada, & co'l
 pugnale?
 
-###### Provocationi con spada sola più difficili dell'altre con spada & pugnale. {#sola_difficile}
+Provocationi con spada sola più difficili dell'altre con spada & pugnale.
+=========================================================================
 
 **Gio.** Quelle che si fanno con la spada spada sola: perché con essa bisogna
 fare due effetti; cioè difendere, & offendere. Ma havendo il pugnale, con esso
 potete parare, & con la spada ferire.
 
-###### Quarto modo di provocare & offendere. {#quarta}
+Quarto modo di provocare & offendere.
+=====================================
 
 Ma per seguire i contrarij delle sopradette provocationi, dico; Che quando egli
 spingerà la punta per faccia co'l pie destro innanzi; voi quella co'l pugnale
@@ -692,7 +701,8 @@ Ma nello spingere l'imbroccata, la pararete con un riverso ridoppio, passando
 in quell'instante del pie dritto innanzi, & con una punta sopramano li ferirete
 la faccia: & questi sono i suoi contrarij.
 
-###### Quinto modo di provocare & offendere. {#quinta}
+Quinto modo di provocare & offendere.
+=====================================
 
 Hor venendo alla quinta maniera di provocare il nimico, essendo amendue con la
 spada in guardia d'alicorno co'l pie dritto innanzi, & co'pugnali in cinghiale
@@ -720,7 +730,7 @@ quando egli spingesse l'imbroccata, voi passerete del manco piede verso le
 parti dritte del nimico, e in questo passagio allargherete alquano il braccio
 sinistro, & co'l pugnale indentro l'urtarete; ma nel medesimo tempo li
 volgerete per testa un riverso sopramano, co'l quale vi fermerete in coda lunga
-alta, & co'l pugnale in porta di ferro. 
+alta, & co'l pugnale in porta di ferro.
 
 Secondo. Quando egli tirerà il pie dritto all'indietro, e spingerà la punta
 sopramano, voi potete finger di risponderli: et s'egli venisse alla finta, voi
@@ -766,4 +776,3 @@ giostra, v'invito per domani a ragionare sopra la spada & la cappa.
 
 **Lep.** Andiamo, & accetto l'invito  per domani, per saper il modo di valersi
 di spada & cappa: cosa da me molto desiderata.
-
