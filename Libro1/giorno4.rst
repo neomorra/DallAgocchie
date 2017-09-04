@@ -185,7 +185,7 @@ vero gli segarete di riverso per coscia. Potete anco parare il detto colpo con
 la spada in guardia d'entrare, sostenuta dal pugnale: & nel medesimo tempo
 passare innanzi, e spingerli la punta per il volto: indi subito tornare indietro
 del pie destro, accompagnandovi una punta, con la quale vi agiarete nell
- sopradette guardie.
+sopradette guardie.
 
 Ma se per caso egli vi rispondesse di riverso per gamba; tirarete il pie manco
 appresso al dritto, e in uno istesso tempo li spingerete una punta per faccia.
