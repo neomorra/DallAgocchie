@@ -65,7 +65,7 @@ faccia, & queste sono le provocationi, insieme, con le offensioni, che fare si
 possono, essendo amendue nella sopradetta guardia.
 
 Provocationi perché si fanno.
-=============================
+===============================
 
 Le quali provocationi, accio che meglio sappiate, si fanno per due cagioni:
 l'una per fare mover'il nimico di guardia, e incitarlo à ferire: accio che più
@@ -320,7 +320,7 @@ così si chiamano, & poi seguirete il ragionare delle provocationi, che fa si
 possono nell'altra guardia.
 
 Mezi mandritti, perché si fanno, & così si chiamano
-===================================================
+=====================================================
 
 **Gio.** Vi dirò. Voi sapete che'l mandritto sgualimbro principia dalla spalla
 manca, & finisce al ginocchio destro del nimico, & per questo fu nominato colpo
