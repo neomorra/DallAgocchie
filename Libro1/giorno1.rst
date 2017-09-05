@@ -33,7 +33,7 @@ Nientedimeno acciò che conosciate quanto v'ami, et desidero far per voi,
 cominiate a spiegarmi vostra intentione, che pronto m'havretead ogni vostra
 richiesta.
 
-**Lep.** Con ogni mio potere mi sono sforzato,et ho usatoogni diligenza per
+**Lep.** Con ogni mio potere mi sono sforzato,et ho usato ogni diligenza per
 sapere la ragionedell'armi circa lo schermire: ma tanti & così diversi pareri
 sempre sopra ciò hò uditi, che non pur non son divenuto capace di quello ch'era
 l'intento mio, ma io ne son riamsto con l'intelletto, maggiromente offuscato, &
