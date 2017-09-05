@@ -16,7 +16,7 @@ ch'io sapessi, che con tante preminenze all'altre armi togliesse il pregio: di
 che volentieri ne saprei alcuna ragione.
 
 Spada sola, perché preferita all'altre armi.
-============================================
+=============================================
 
 **Gio.** Le principali ragioni, che la spada sola all'altre armi si preferisca;
 sono, che non essendo cosa al mondo che più si apprezzi dell'honore il quale
@@ -108,7 +108,7 @@ dove si ferisce di punta, si può ferir ancor di taglio.
 **Lep.** Qual tenete voi, che sia meglio ferire, di punta, ò di taglio?
 
 Ferir di punta è migliore che di taglio.
-========================================
+=========================================
 
 **Gio.** L'uno & l'altro è buono: nondimeno hò il ferire di punta per migliore.
 Perché la punta è di manco tempo, per esser più propinqua al nimico, & ancor è
@@ -610,7 +610,7 @@ esse fare si possono.
 **Lep.** Di questi due schermi qual ritenete voi migliore?
 
 Schermo più sicuro qual è.
-==========================
+============================
 
 **Gio.** Tutti due son buoni; ma però gli schermi, che si fanno co'l fil dritto
 della spada, son migliori, & più sicuri. Perché quasi sempre si fanno nel forte

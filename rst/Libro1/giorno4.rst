@@ -669,7 +669,7 @@ che si fanno con la spada sola, ò queste che si fanno con la spada, & co'l
 pugnale?
 
 Provocationi con spada sola più difficili dell'altre con spada & pugnale.
-=========================================================================
+===========================================================================
 
 **Gio.** Quelle che si fanno con la spada spada sola: perché con essa bisogna
 fare due effetti; cioè difendere, & offendere. Ma havendo il pugnale, con esso

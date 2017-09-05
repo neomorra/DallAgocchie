@@ -53,7 +53,7 @@ comporta: & principalmente onde nasce, che un'arte si degna sia tenuta in così
 poca reputatione?
 
 Arte dello schermire perché si poco stimata.
-============================================
+==============================================
 
 **Gio.** Intorno a questo quesito, come che varij variamente nè favellino; io
 sono di quelli che tengo opinione, ciò non procedere da altro, se non che molti
@@ -66,7 +66,7 @@ sprezzano.
 dell'arte militare.
 
 Schermo perché è fondamento dell'arte militare.
-===============================================
+==================================================
 
 **Gio.** Vi dirò, si può pigliar questo nome in generale, & in particolare. In
 generale, per ogni forte di militia. In particolare, per lo combattere da solo
@@ -283,7 +283,7 @@ tre.
 **Lep.** Non v'incresca dirmi come s'intendano queste nature, & quali siano.
 
 Colpi di più forti.
-===================
+====================
 
 **Gio.** Tutti i colpi saranno, ò mandritti, ò riversi, ò punte. Ma ciascuno di
 essi ha seco più nature, secondo la diversità del suo colpire. Perché il
@@ -354,7 +354,7 @@ quanto al falso.
 ordine, che delle guardie, facciate mentione.
 
 Guardie più importanti sono otto. Coda lunga.
-=============================================
+==============================================
 
 **Gio.** Hor venendo alle guardie, dico: Che assai ce ne sono, si da basso, come
 da alto: mà le più importanti sono otto, quattro da alto, & quattro da basso. Da
