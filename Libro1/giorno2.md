@@ -67,7 +67,7 @@ accioché con più facilità possiate comprende il resto.
 ###### Parar con la spada in quanti modi si fa. {#parare}
 
 Havete dunque à sapere; che in due modi soli con la spada si può parare, ò co'l
-fil dritto di essa, ò co'l falso. Il qual falso si dicide in due nature; come vi
+fil dritto di essa, ò co'l falso. Il qual falso si divide in due nature; come vi
 hò detto, cioè dritto, & manco.
 
 Del falso dritto ve ne potete servire, per
