@@ -42,7 +42,7 @@ colpi hanno ritrovato di novo i moderni, che non tragghino origine dal tempo
 passato? Io trovo che tutte le guardie, i colpi, & ogni altra cosa che à questi
 tempi si usa; si usava etiamdio al tempo de gli antichi: però io non sò
 considerare altro, se non che vogliano dire, c'hoggidì lo schermo sia molto
-ritretto, rispetto all'antico. La qual ragione quanto vaglia per mostrare, che
+ristretto, rispetto all'antico. La qual ragione quanto vaglia per mostrare, che
 sia usanza nova; si può conoscere da questo, che i maestri antichi la sapevano
 benissimo: anzi il fondamento loro era il ristringersi a meza spada. Ma essendo
 difficil cos, ne possendosi usare senza ingegno, & arte grandissima; essi lo
