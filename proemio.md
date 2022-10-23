@@ -27,4 +27,4 @@ guisa a punto, che la state passata io n'hebbi ragionamento in Brescia, in casa
 dell'Illustrissimo  Signore Girolamo Martinenghi, con messer Lepido Ranieri
 giovane di accorte, & virtuose maniere, & molto intendente dello essercitio
 dello schermire: co, quale dopo molti discorsi, essendo amendue ridotti nel
-giardino; egli così cominciò a dire.
+giardino; egli così cominciò a dire. prova
